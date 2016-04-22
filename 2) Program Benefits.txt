@@ -1,6 +1,7 @@
-Program Benefits: Final Revised Copy 
+#Program Benefits: Final Revised Copy 
 
-(  Revised numerical order. ) 
+
+<!--
 
 1.) Exercise is Not a Requirement
 
@@ -14,22 +15,15 @@ Program Benefits: Final Revised Copy
 
 6.)  Food First!  No Supplements or Herbs...
 
-7.) Undivided Attention - Doctor Driven Counsel - A Unique Program Benefit
+7.) Undivided Attention - Doctor Driven Counsel - A Unique Program Benefit-->
 
-______________________
 
-Revised Copy: 
 
-*Please place a split picture of a couple at the beach split w/another picture of a nice very contemporary looking bed w/a dumb-bell on it, as a conscious play - gesture - referring to what they are about to read.* these images above the exercise is not a requirement section.
-
-1.) Exercise is "Not" a Requirement 
-
-(Revised Copy)
+##Exercise is "Not" a Requirement 
 
 Exercise is not a requirement with this program. 
 
-On this program you will be going to exercise for the “right” reasons and enjoy freedom from the “control the scale syndrome”.
-Exercise is not a factor in weight loss and does not accelerate weight loss. On this program calories, fat, fiber and carbohydrates are not counted. Nothing is counted because there are unlimited portions. When food energy is used correctly by the body as 100% cellular energy whatever the food provides results positive. This is learned and understood through your counsel in Dietary Progression and submitted data. Exercise is always good, cardiovascularly, for muscles and many other functions in the body. Exercise should be performed for help and “not to control the scale”.  Exercise to control the scale has become an unhealthy trend, contributing to addiction issues for a very large percentage of the female & male population, at all ages.
+On this program you will be going to exercise for the “right” reasons and enjoy freedom from the “control the scale syndrome”. Exercise is not a factor in weight loss and does not accelerate weight loss. On this program calories, fat, fiber and carbohydrates are not counted. Nothing is counted because there are unlimited portions. When food energy is used correctly by the body as 100% cellular energy whatever the food provides results positive. This is learned and understood through your counsel in Dietary Progression and submitted data. Exercise is always good, cardiovascularly, for muscles and many other functions in the body. Exercise should be performed for help and “not to control the scale”.  Exercise to control the scale has become an unhealthy trend, contributing to addiction issues for a very large percentage of the female & male population, at all ages.
 
 This exercise to control the scale syndrome contributes to eating disorders and unhealthy food related behavior patterns.  
 
@@ -57,9 +51,7 @@ End Revised Copy:
 
 
 
-2.) Rest, A.K.A "Horizontal Time, HT" (T.M.)
-
-Revised Copy:
+## Rest, A.K.A "Horizontal Time, HT"™
 
 The fact that most clients realize that “REST”, A.K.A., (Horizontal Time ”HT” at the Right Time on the Correct Foods) will allow us to guide you in "Mapping-Out Your Cleaning Cycles"(T.M.) can accelerate weight-loss, when on this program, on the correct foods.  Incinerating body fat whether just lying down in the HT position, not asleep or asleep. As clients say, “This Is A Magical Food Moment!”
 
@@ -84,9 +76,7 @@ Your introduced to multiple concepts that clients agree, are eye opening experie
 " Mapping Out Your Cleaning Cycles"(T.M.) and  
  learning about "The PM Scale Reading",(T.M.)
 
-End Revised Copy:
-
-3.) Hormones (Revised Copy)
+##Hormones
 
 Both Female & Male,
 
@@ -141,15 +131,7 @@ That's taking the guilty pleasure out of the craving. Now your able to enjoy the
 That's "Food - Freedom",(T.M.).
 
 
-End Revised Copy:
-
-*Picture of the tomatoes w/split picture of the man & women in the kitchen - please move this image of the people to the very first image in the section: "Why Our Program is Unique"
-In place of the 2-men.
-
-Replace the image above the header for Immune related issues with:
-The vial of blood and floating cells. W/the image of female eating or cutting into the salad.
-
-4.) Immune Related Issues are Food Related Issues (Revised Copy)
+##Immune Related Issues are Food Related Issues
 
 All health problems are immune related, and food related but not all weight related. 
 
@@ -161,15 +143,9 @@ Diabetics type 1 to type 2, learn to regulate & reduce insulin by their individu
 
 Clients that have lupus, Lyme’s or associated symptoms of lyme's short-term & long-term suffering, sinus congestion, excessive mucous in upper and lower respiratory systems, seasonal immunogenic suppression, chronic fatigue syndromes, fibromyalgia, skin rashes, hot painful joints, itching and sever redness, forms of rosacea, eczema and psoriatic arthritic conditions, all have reached levels of improved management, reduced insulin levels and medications to none at all, with others achieving remission on this program.  This improvement occurs regardless of age.  Coordinating doctors we find cooperate by reducing, weaning or removing patients from medication as they witness success.  People have to help their bodies by feeding / eating the correct energy in the form of correct foods, so it can get the job done.
 
-End Revised Copy:
+##Grow Muscle | Gain Weight | Bone Density
 
-This to be placed on top of #5 section
-
-*Need a picture of a variety of female & males, younger & middle aged - like a family group of parents - grandparents and kid - that all have an athletic appearance, athletic clothing somewhat -  in a kitchen.
-
-5.) Grow Muscle | Gain Weight | Bone Density
-
-                         Increase Your Size
+Increase Your Size
 
 This accomplished from a different protocol within your dietary progressions program & your individual systems,“Scale Reactivity System",(T.M.)
 
@@ -187,9 +163,8 @@ If body composition analysis measurements are of interest - We support and sugge
 
 It is highly regarded within the professional athletic leagues, Olympic peer's and college athletics as one of the top caliber tools for body composition analysis / measurement.  Due to only having no more then a 1.5% error reading, superior and comparable to the other most accurate forms of body composition measurement analysis such as water buoyancy evaluation and electrical bioimpedance measurement.  Onsite at our private facility we do have a "BodPod" and pictures are available for viewing.  Clicking on the image or social media galleries.
 
-End Revised Copy:
 
-6.)  Food First!  No Supplements or Herbs...  Revised Copy:
+##Food First!  No Supplements or Herbs...
 
 Only food first and to be enjoyed in - unlimited portions till satisfied. 
 
@@ -203,21 +178,13 @@ We have our own "Premium, NON-GMO Multi-Vitamin Mineral Am & Pm Support System F
 
 Research based and scientifically designed, the Am & Pm Support Systems are blended to interact with each-other, by day (Am) and by Night (Pm) to give you the extra support you need. The truth is on the label. 
 
-( Place short cut to BYG Multi-Vitamin ) Here!
+<!--( Place short cut to BYG Multi-Vitamin ) Here!-->
 
 Dr.Leon will guide you thru a realistic exciting approach to learning and applying amino-acid applications per your weight, frame size, body composition and height.  
 
 To what’s trending in the supplemental marketplace that’s truly a NoN-GMO label. Dr.Leon will have you trained and ready to "B Your Greatest, when it also becomes time to put your "food detective label reading game face on".  Our Pinterest Link contains almost an entire grocery store and then some, displaying great brands and labels you can rely on. Others good, and the bad labels.  Dr.Leon references our Pinterest boards during your format reviews, our "Chewing The Phat-Podcasts" and product reviews that are upcoming this summer of 2016 on "Dr.LeonMellman's BYGtv channel".  Where  the "other ingredient area's" display the hidden poisons and the window dressings on products don't stand a chance.
 
-End Revised Copy:
-
-*
-
-Look to place a picture above #7 copy, of a male speaker on stage in front of a huge audience - (we will look for a picture of myself - until then place one you can find W/a headset on, or a graphic design of a well dressed male - headset on at a desk w/a cloud - like bubble displaying the idea of speaking to a large volume of people around the country....
-
-7.) Undivided Attention | Doctor Driven Counsel - A Unique Program Benefit
-
-Revised Copy:
+##Undivided Attention | Doctor Driven Counsel - A Unique Program Benefit
 
 When was the last time you had undivided attention for 30 minutes to an hour, 
 weekley or bi-weekley, with a doctor / physician ?  
@@ -225,10 +192,7 @@ Direct contact for any length of time with a doctor / physician is becoming very
 Due to system driven healthcare.
 This will not be your experience here.
 
-Our private healthcare organization's Conceirge focus allows for "Doctor Driven Healthcare".  
-A complete integrated healthcare management system applied at work and at home
- with in-depth counsel and an on-going constant contact experience with Dr. Leon Mellman
- of what each participants immune system is accomplishing within the protocol of the program. This will be your experience integrated throughout the next 4-months of counsel.
+Our private healthcare organization's Conceirge focus allows for "Doctor Driven Healthcare". A complete integrated healthcare management system applied at work and at home with in-depth counsel and an on-going constant contact experience with Dr. Leon Mellman of what each participants immune system is accomplishing within the protocol of the program. This will be your experience integrated throughout the next 4-months of counsel.
 
 A Unique Program Benefit!
 
@@ -245,15 +209,3 @@ This Program is primarily not a public group teleconferencing experience.
 All programs are non-refundable.  
 These statements have not been evaluated by the food and drug administration.  
 These programs and products are not intended to diagnose, treat, cure or prevent disease(s).
-
-
-
-
-End Revised Copy:
-
-
-
-
-
-
-
