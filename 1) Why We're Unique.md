@@ -2,12 +2,12 @@
 
 Weight loss, weight maintenance, and health benefits are the most popular reasons for using this program. If a person is not at their appropriate weight for their frame size, they will lose weight on a daily basis until their system reaches the correct weight. If they are at the correct weight, they will automatically maintain this weight. If someone needs to gain weight, it will occur because it is what that system needs to be healthy. This is the effect of knowing and eating the right foods for your particular system. We use Olympic standards to determine your weight per frame size and give instruction on how to determine this by measurement during your medical interview call. 
 
-During the interview, Dr Leon will give you approximations of the target weight per frame size specific to your medical history within the confidential healthcare information discussed in counsel. These details and your blood sample are integrated when diagnostically formulating your Dietary Progressions program.
+During the interview, Dr. Leon Mellman will give you approximations of the target weight per frame size specific to your medical history within the confidential healthcare information discussed in counsel. These details and your blood sample are integrated when diagnostically formulating your Dietary Progressions program.
 
 Health benefits are another result of being on this dietary program. Some people can lose weight on most programs but they still need their medications because all health problems are not weight related. 
-All health problems are immune related. This is another reason I developed the application dietary progressions, which is the program that connects the diagnostic foundation we formulate for you. 
+All health problems are immune related. This is another reason why I developed the application dietary progressions, which is the program that connects the diagnostic foundation we formulate for you. 
 
-For example, what we experienced with my first son Leon, which he is now the physician for this program, Dr Leon Mellman. Or when a new clients main focus is to reduce medication(s) or have positive changes on labs yet their weight per frame size is good, or they simply wish to improve performance at work & at play. 
+For example, when a new client's main focus is to reduce medication(s) or have positive changes on labs, yet their weight per frame size is good, or they simply wish to improve performance at work & at play. 
 
 **All health problems are immune related.**
 
