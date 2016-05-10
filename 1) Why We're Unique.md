@@ -155,14 +155,3 @@ an in-depth understanding to ones immune system not typically seen within many t
 This is where the starting point of your medical interview, the sample blood-draw, the initial laboratory processing, then the final staging of your specimen for Dr. Leon Mellman to diagnostically formulate, your Dietary Progression.
 
 This is the basic, fundamental underlying cause of, Why We Are “ Unique”!,  We offer an integrated nutritional program for applied immunology you can learn and you can apply as long as you like...
-
-
-
-
-
-
-
-
-
-
-
