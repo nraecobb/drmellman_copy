@@ -23,27 +23,27 @@
 
 Exercise is not a requirement with this program. 
 
-On this program you will be going to exercise for the “right” reasons and enjoy freedom from the “control the scale syndrome”. Exercise is not a factor in weight loss and does not accelerate weight loss. On this program calories, fat, fiber and carbohydrates are not counted. Nothing is counted because there are unlimited portions. When food energy is used correctly by the body as 100% cellular energy whatever the food provides results positive. This is learned and understood through your counsel in Dietary Progression and submitted data. Exercise is always good, cardiovascularly, for muscles and many other functions in the body. Exercise should be performed for help and “not to control the scale”.  Exercise to control the scale has become an unhealthy trend, contributing to addiction issues for a very large percentage of the female & male population, at all ages.
+On this program, you are going to exercise for the “right” reasons and will enjoy freedom from the “control the scale syndrome”. Exercise is not a factor in weight loss and does not accelerate weight loss. Calories, fat, fiber, and carbohydrates are not counted on this program. Nothing is counted because there are unlimited portions. When food energy is used correctly by the body as 100% cellular energy, whatever the food provides results in a positive. This is learned and understood through your counsel in Dietary Progression and submitted data. Exercise is always good, cardiovascularly, for muscles and many other functions in the body. Exercise should be performed for help and “not to control the scale”. Exercise to control the scale has become an unhealthy trend, contributing to addiction issues for a very large percentage of the female and male population, at all ages.
 
 This exercise to control the scale syndrome contributes to eating disorders and unhealthy food related behavior patterns.  
 
-Occurring from early stages, childhood, adolescent, college years and influencing our decision making professionally and personally. Years of practice within this field, we see these trends having an ill-effect on hormonal development for females and males. Ranging from reproduction issues, menstrual cycle issues, aging in an unhealthy manner, maintaining muscle mass, growing new muscle, insulin deficiency, insulin-inefficiency, ill-carbohydrate assimilation, erectile – libido concerns and bone density.  
+Occurring from early stages, childhood, adolescent, college years and influencing our decision making professionally and personally. During years of practice within this field, we see these trends having an ill-effect on hormonal development for females and males. Ranging from reproduction issues, menstrual cycle issues, aging in an unhealthy manner, maintaining muscle mass, growing new muscle, insulin deficiency, insulin-inefficiency, ill-carbohydrate assimilation, erectile – libido concerns, and bone density.  
 
-On this program you will be going to exercise for the “right” reasons and enjoy freedom from the “control the scale syndrome”.
+On this program you are going to exercise for the “right” reasons and will enjoy freedom from the “control the scale syndrome”.
 
-Eating the right foods for your system can give you the day to day food efficiency and consistency to rely on.  In council you will learn to understand and interpret our "Scale Reactivity System"(T.M.) as a parameter of how your body and the food are interacting.  Consistency from the foods that work using the right foods to manage your weight and lose weight rather than forcing your body into exercise, to control the scale syndrome, an unhealthy addiction. Most people force exercise while eating the wrong foods, possibly dangerous foods for their systems at the time of forced exercise. 
+Eating the right foods for your system can give you the day to day food efficiency and consistency to rely on. In council you will learn to understand and interpret our "Scale Reactivity System"(T.M.) as a parameter of how your body and the food are interacting. Consistency from the foods will work using the right foods to manage your weight or lose weight rather than forcing your body into exercise to control the scale syndrome, which is an unhealthy addiction. Most people force exercise while eating the wrong foods, possibly dangerous foods, for their systems at the time of forced exercise. 
 
-Eating the right foods for your system enjoying the weight-loss and actually feeling lighter, this becomes your reality on our program. Exercise is a pleasure rather than a stress.
+Eating the right foods for your system, enjoying the weight-loss and actually feeling lighter, become your reality on our program. Exercise is a pleasure rather than a stress.
 
 When food which is chemical energy is used correctly by the body, whatever that food provides results in a positive. 
 
-The Correct food for your system, equals (=) the right energy for your system.
+The Correct food for your system equals (=) the right energy for your system.
 
 The wrong foods equal (=) the wrong energy. 
 
 This program can also reduce your fatigue and increase your recovery time from exercise and from stress.  Many people ask if it is possible to stop weight loss and the answer is "yes". 
 
-You can stop weight loss at any time just by eating foods that you will learn cause your specific system to stop losing and other foods that cause your bodyweight to maintain weight or go up. This all happens while your body is reaching its ideal body fat. With this weight-loss there will be no loss of strength in fact you will be stronger as clients report from eating those proteins that work best in your body per your individualized dietary program.  
+You can stop weight loss at any time just by eating foods that you will learn cause your specific system to stop losing and other foods that cause your bodyweight to maintain weight or increase. This all happens while your body is reaching it's ideal body fat. With this weight-loss, there will be no loss of strength. You will be stronger, in fact, as clients report from eating those proteins that work best in your body per your individualized dietary program.  
 
 The list of rapidly growing health issues is food related as much as it is immune related. 
 
@@ -53,32 +53,32 @@ End Revised Copy:
 
 ## Rest, A.K.A "Horizontal Time, HT"™
 
-The fact that most clients realize that “REST”, A.K.A., (Horizontal Time ”HT” at the Right Time on the Correct Foods) will allow us to guide you in "Mapping-Out Your Cleaning Cycles"(T.M.) can accelerate weight-loss, when on this program, on the correct foods.  Incinerating body fat whether just lying down in the HT position, not asleep or asleep. As clients say, “This Is A Magical Food Moment!”
+The fact that most clients realize that “REST”, A.K.A., (Horizontal Time ”HT” at the Right Time on the Correct Foods) will allow us to guide you in "Mapping-Out Your Cleaning Cycles"(T.M.) can accelerate weight-loss, when on this program, on the correct foods. Incinerating body fat whether just lying down in the HT position, not asleep or asleep. As clients say, “This Is A Magical Food Moment!”
 
-Many professional athletes, & over-working executives, would use exercise extensively , cardiovascularlay approximating a 3500 cal-burn two times daily and eating only one meal or sometimes two meals per day, with some sort of starvation paired with this extreme cardiovascular routines or obsessive cardio in attempt to manipulate weight to try to meet their contract weight or weight requirements for positions that they play.  That did not work for them.  Executives & parents due to healthcare plan requirements or re-exams fall into the same ill-habits.  All unhealthy addictive practices. This did not work for them.
+Many professional athletes would use exercise extensively, cardiovascularly approximating a 3,500 cal-burn two times daily and eating only one meal or sometimes two meals per day, with some sort of starvation paired with this extreme cardiovascular routines or obsessive cardio in an attempt to manipulate weight to try to meet their contract weight or weight requirements for positions that they play. That did not work for them. Over-working executives and parents, due to healthcare plan requirements or re-exams, fall into the same ill-habits. All unhealthy and addictive practices. This did not work for them.
 
-Only when they began this program and ate the correct foods for their systems, feeding their systems the correct foods till satisfied by allowing yourself unlimited portions were they able to reach their goals and be at low body fat percentages that they thought were impossible for them to achieve. Realizing they lose more weight when they rest eating the correct foods with the right amount of horizontal time at the right time - takes the stress out of exercise and the guilt out of relaxation. At the same time being able to reach their goals & enjoy food! 
+Only when they began this program and ate the correct foods for their systems, feeding their systems the correct foods till satisfied by allowing themselves unlimited portions, were they able to reach their goals and be at the low body fat percentages that they thought were impossible for them to achieve. Realizing they lose more weight when they rest and eat the correct foods with the right amount of horizontal time at the right time takes the stress out of exercise and the guilt out of relaxation. At the same time being able to reach their goals and enjoy food! 
 
-This is Self-Empowering & a Win-Win.
+This is Self-Empowering and a Win-Win.
 
-Creating a new physical and emotional relationship to the correct foods, listening & feeling what’s right & when your satisfied.  Having an interactive experience with your system throughout your Dietary Progression's New Rules and understanding it.
+Creating a new physical and emotional relationship with the correct foods, listening and feeling what’s right and when your satisfied.  Having an interactive experience with your system throughout your Dietary Progression's New Rules and understanding it.
 
-When on the correct foods at the right time with the right amount of horizontal time whether not  a-sleep or sleeping, your body is now being given the optimal opportunity to tap into innate- intelligence to recover & regenerate from being vertical all day on earths gravitational pull. 
+When on the correct foods at the right time with the right amount of horizontal time, regardless if you're awake or sleeping, your body is given the optimal opportunity to tap into innate- intelligence to recover and regenerate from being vertical all day on earth's gravitational pull. 
 
-This intelligence that we call your "Cleaning Cycles,(T.M.) is an opportunity already within us. When on the correct foods, eating them at the right time with the right amount of horizontal time, and you have witnessed your chemical - "click-in"(T.M.) while calming down in the horizontal position.  This to be discussed and coached up on when in counsel.
+This intelligence, which we call your "Cleaning Cycles,(T.M.), is an opportunity already within us. When on the correct foods and eating them at the right time with the right amount of horizontal time, you will witness your chemical - "click-in"(T.M.) while calming down in the horizontal position.  This to be discussed and coached up on when in counsel.
 
-Once your cleaning cycles have begun, these specific organs ( your hepatic system ) start their nightly performance and they look to do this every night as part of our inherent innate built-in natural detoxification and cleansing system.
-Finally given the opportunity to perform at 100% on a cellular level by understanding how to tap-into you own fountain of youth. 
+Once your cleaning cycles have begun, these specific organs (your hepatic system) start their nightly performance and they look to do this every night as part of our innate, built-in natural detoxification and cleansing system.
+You're finally given the opportunity to perform at 100% on a cellular level by understanding how to tap into your own fountain of youth. 
 
 Magical food moments begin to happen.
 
-Your introduced to multiple concepts that clients agree, are eye opening experiences - windows of opportunity.  How to tap-into your body's own sleep technology, learning how to
+You're introduced to multiple concepts that, clients agree, are eye opening experiences and windows of opportunity. How to tap into your body's own sleep technology, learning how to
 " Mapping Out Your Cleaning Cycles"(T.M.) and  
  learning about "The PM Scale Reading",(T.M.)
 
 ##Hormones
 
-Both Female & Male,
+Both Female and Male,
 
 Satisfying cravings and not over-eating yet incredibly satisfied by what foods are working and proof - to be compatible with their systems. 
 
