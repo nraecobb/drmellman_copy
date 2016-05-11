@@ -108,102 +108,96 @@ After a period of time, women that begin their program with hormone replacement 
 
 Different forms of birth control pills, or other medications that have hormonal side effects, are taken for many years without considering any effects on a menstrual cycle, the system that's endured this type of treatment (having the ability to reproduce a healthy baby on their own without the need for induced hormones to do so), or POST-Pregnancy health. Hormones needed for pregnancy are becoming just as much a trend as it is for menopausal women to end up addicted or dependent on hormonal therapy, for the remainder of their lives or close to it. The severe silence that surrounds the side-effects is different for each. Not knowing the way their bodies feel without the hormones / medications because the foods being eaten at that time with hormones could not be used efficiently. Then when the correct foods can be eaten with a focus of increased cellular energy with respect to organ pathways, systems have the opportunity to repair and correct naturally. 
 
-Some clients regain healthy menstrual cycles whatever the timing of their cycle may be for that individuals lifestyle & not text book timing.
+Some clients regain healthy menstrual cycles whatever the timing of their cycle may be for that individuals lifestyle and not text book timing.
 
-Other women come to the program seeking in attempt to hold off on hysterectomies, re-establishing a menstrual cycle in accessing their body's own female abilities. Women in pursuit of their inherent right to have a natural pregnancy are increasing these chances from the correct foods that can repair and correct prostaglandin function, to our understanding, from what has been missing for up to six to nine  months, then gain their body's own ability to regulate hormonal function knowing from their own personal research that their system should manage this on their own, rather than being stopped by a procedure, medications, or synthetic hormones, and the possibility of living with short-term or long-term doses of side-effects.
+Other women come to the program seeking an attempt to hold off on hysterectomies and re-establish a menstrual cycle by accessing their body's own female abilities. Women in pursuit of their inherent right to have a natural pregnancy are increasing these chances with the correct foods that can repair and correct prostaglandin function, to our understanding, from what has been missing for up to six to nine  months, then gain their body's own ability to regulate hormonal function knowing from their own personal research that their system should manage this on their own, rather than being stopped by a procedure, medications, or synthetic hormones, and the possibility of living with short-term or long-term doses of side-effects.
 
 Male Systems,
 
-Male systems wanting to increase male hormone and defy aging, gain strength and new muscle mass. There will also be more male hormones.
+There will also be more male hormones. As a main focus, many men come into the program wanting to increase male hormone and defy aging, gain strength, and new muscle mass. Having their systems become more efficient with the protein and carbohydrates they eat for improved insulin function. While losing weight or gaining weight on this program, your muscle mass will increase due to the correct proteins and carbohydrate sources being eaten and prove compatible, so you know they are being used at 100% efficiency on a cellular level.
 
-Many men come into the program with this as a main focus. Having their systems become more efficient with the protein they eat and carbohydrates they eat for improved insulin function. While losing weight or gaining weight on this program, your muscle mass will increase due to the correct proteins and carbohydrate sources being eaten and proof compatible so you know they are being used at 100% efficiency on a cellular level.
+This is also another concern for female systems seeking more energy, muscle tone, and improved hormone function. 
 
-This is also another concern for female systems seeking more energy, muscle tone and improved from female hormone function. 
+Both male and female clients also report better balance in their own hormones. Some accomplish this in a shorter period of time, while others in longer periods of time, with respect to their medical history. We must place an incredible value on the understanding that there is an innate re-cooperative ability to manufacture your own female or male hormones and that we all have a different journey that impacts us (positively or negatively) in mental, physical, reproductive, and regenerative function. This aside, there is a very in-depth appreciation for your body’s own ability to better regulate inflammation by the manufacturing of prostaglandin pathway anti-inflammatories for male or female hormone function. This is a main focus when feeding your system the correct foods to make a catalyst for prostaglandin function.
+You will understand what your body is communicating from an exact craving, when or if they do occur, and pattern out your dietary progression with the coordinating white blood cells end organ systems that apply to those specific foods, working and not working, to reveal a pattern of immunology, only revealed from your Dietary Progressions Program.
+You won't be tormented by cravings because you're actually satisfied from the correct foods you're eating. Finally, you have a scientific reason particular to your system. 
 
-Clients that are male and female also report better balance in their own hormones. Some accomplish this in a shorter period of time others longer periods of time with respect to their medical history. We must place an incredible value on the understanding that there is an innate inherent re-cooperative ability to manufacture your own female and or male hormones and that we all have a different journey that impacts us positively or negatively in mental, physical, reproductive & regenerative function. This aside, there is a very in-deep appreciation for your body’s own ability to regulate inflammation better by the  manufacturing prostaglandin pathway anti-inflammatory male or female hormone function.  This is a main focus when feeding your system the correct foods to make this a catalyst for prostaglandin function.
-Understanding what your body is communicating from an exact craving, when & if they do occur to patterning out your dietary progression with the coordinating white blood cells end organ systems that apply to those specific foods working and not working reveal a pattern of immunology only revealed from your Dietary Progressions Program.
-Not experiencing cravings that are tormenting you because your actually satisfied from the correct foods your eating. Finally, having a scientific reason particular to your system. 
-
-If you do start to experience cravings, our integrated application demonstrates they come from your most neurological receptive male and female organs neuro-chemical communication. This being said and supported in research, we support your cravings and they need to be satisfied from challenge foods to be proofed in for compatibility within your Dietary Playbook's diagnostic section. 
-That's taking the guilty pleasure out of the craving. Now your able to enjoy the food that satisfies the craving as a healthy association because you understand why and where the craving is coming from ! 
+If you do start to experience cravings, our integrated application demonstrates they come from your most neurological receptive male and female organs through neuro-chemical communication. This being said, and supported in research, we acknowledge that your cravings need to be satisfied from challenge foods to be proven for compatibility within your Dietary Playbook's diagnostic section. 
+That's taking the guilt out of the craving. Now you're able to enjoy the food that satisfies the craving as a healthy association because you understand why and where the craving is coming from! 
 That's "Food - Freedom",(T.M.).
 
 
 ##Immune Related Issues are Food Related Issues
 
-All health problems are immune related, and food related but not all weight related. 
+All health problems are immune and food related but not all weight related. 
 
-Joint pain and inflammation begin to decrease by the fourth or fifth day hundreds and hundreds of clients report, due to the fact that foods are not provoking a specific white blood cell whose main purpose is to create inflammation in the joints when provoked. The data collected during our initial nineteen years continues currently to show that high blood pressure begins positive change towards correction within the the first 10 days, cholesterol within 17 days and many different types of comprehensive laboratory profiles within 21 days.  This specific to the  medical history & the ability to stay consistently on program per Dr. Leon Mellman's recommendations. 
+Joint pain and inflammation begin to decrease by the fourth or fifth day, as hundreds and hundreds of clients report, due to the fact that foods are not provoking a specific white blood cell whose main purpose is to create inflammation in the joints. The data collected during our initial nineteen years continues currently to show that high blood pressure begins a positive change towards correction within the the first 10 days, cholesterol within 17 days, and many different types of comprehensive laboratory profiles within 21 days. This is specific to your medical history and the ability to stay consistently on program, per Dr. Leon Mellman's recommendations. 
 
-Medicated clients suffering from, heartburn indigestion, different forms of acid indigestion or variable forms of reflux, have reported for years being symptom free with positive change, in a couple of days within the start of their individualized Dietary Progression Programs.
+Medicated clients suffering from heartburn, indigestion, and different forms of acid indigestion or variable forms of reflux have reported being symptom free with positive change, for years, in a couple of days within the start of their individualized Dietary Progression Programs.
 
-Diabetics type 1 to type 2, learn to regulate & reduce insulin by their individual systems using the correct foods more efficiently on a cellular level, this is witnessed when patterning out data & amazed at how specific foods to their particular systems interact differently. 
+Clients with diabetics type 1 and type 2 learn to regulate and reduce insulin with their individual systems by using the correct foods more efficiently on a cellular level. This is witnessed when patterning out data and they are amazed at how specific foods interact differently with their particular systems. 
 
-Clients that have lupus, Lyme’s or associated symptoms of lyme's short-term & long-term suffering, sinus congestion, excessive mucous in upper and lower respiratory systems, seasonal immunogenic suppression, chronic fatigue syndromes, fibromyalgia, skin rashes, hot painful joints, itching and sever redness, forms of rosacea, eczema and psoriatic arthritic conditions, all have reached levels of improved management, reduced insulin levels and medications to none at all, with others achieving remission on this program.  This improvement occurs regardless of age.  Coordinating doctors we find cooperate by reducing, weaning or removing patients from medication as they witness success.  People have to help their bodies by feeding / eating the correct energy in the form of correct foods, so it can get the job done.
+Clients that have lupus, Lyme’s Disease (or associated symptoms of lyme's), short-term and long-term suffering, sinus congestion, excessive mucous in upper and lower respiratory systems, seasonal immunogenic suppression, chronic fatigue syndromes, fibromyalgia, skin rashes, hot painful joints, itching and severe redness, forms of rosacea, eczema and psoriatic arthritic conditions, have all reached levels of improved management and reduced insulin levels. Some clients have reduced medications to none at all and others have achieved remission on this program. This improvement occurs regardless of age. Coordinating doctors find cooperateration by reducing, weaning, or removing patients from medication as they witness success. People have to help their bodies by eating the correct energy in the form of correct foods, so it can get the job done.
 
 ##Grow Muscle | Gain Weight | Bone Density
 
 Increase Your Size
 
-This accomplished from a different protocol within your dietary progressions program & your individual systems,“Scale Reactivity System",(T.M.)
+This accomplished from a different protocol within your dietary progressions program and your individual systems,“Scale Reactivity System",(T.M.)
 
-Our protocols are adjusted per individual's main focus.  Female or male with respect to your lifestyle, profession and medical history. 
+Our protocols are adjusted per the individual's main focus, with respect to your lifestyle, profession, and medical history. 
 
-On our program – You get to keep the muscle you gain, when your system is being fed the correct foods; as they say, “when its grown correctly it wears correctly”.  
+On our program, you get to keep the muscle you gain. When your system is being fed the correct foods, it is as they say, “when it's grown correctly, it wears correctly”.  
 
-Professional athletes, executives or others who need to increase their size, can gain healthy increments of desired weight in the form of increased muscle mass, while achieving new low body fat percentages with increased strength.  Clients are fascinated that they accomplish from eating those correct proteins and carbohydrates that work best in their bodies per individualized dietary program.
+Professional athletes, executives, or others who need to increase their size, can gain healthy increments of desired weight in the form of increased muscle mass, while achieving new low body fat percentages with increased strength. Clients are fascinated by what they accomplish from eating those correct proteins and carbohydrates that work best in their bodies per an individualized dietary program.
 
-Dr.Leon will intellectually stimulate you during your educational calls on this topic. Understanding how your "PM-Scale Reading System"(T.M.), and the Mapping Out of Your Cleaning Cycles, parlays to ( PG- Stacking,(T.M.) learning how to stack your prostaglandin feedings based on which prostaglandin pathways are open and working for you in support of increased male or female hormone production influencing increased anabolic rest when in the horizontal position. Vs. the prostaglandin pathways that are still in need of rest and repair.
+Dr. Leon will intellectually stimulate you during your educational calls on this topic. Understanding how your "PM-Scale Reading System"(T.M.), and the Mapping Out of Your Cleaning Cycles, pertains to PG- Stacking,(T.M.) and learning how to stack your prostaglandin feedings based on which prostaglandin pathways are open and working for you in support of increased male or female hormone production influencing increased anabolic rest when in the horizontal position Vs. the prostaglandin pathways that are still in need of rest and repair.
 
-This will be determined when voice to voice with Dr. Leon during your orientation call. A thorough understanding of how to integrate Olympic forms and standards of measurement per medical history, height-weight, frame size and body compositions will be targeted.
+This will be determined during your orientation call with Dr. Leon. A thorough understanding of how to integrate Olympic forms and standards of measurement per medical history, height and weight, frame size, and body compositions will be targeted.
 
-If body composition analysis measurements are of interest - We support and suggest, the "BodPod" body composition analysis Instrument. 
+If body composition analysis measurements are of interest, we suggest the "BodPod" body composition analysis Instrument. 
 
-It is highly regarded within the professional athletic leagues, Olympic peer's and college athletics as one of the top caliber tools for body composition analysis / measurement.  Due to only having no more then a 1.5% error reading, superior and comparable to the other most accurate forms of body composition measurement analysis such as water buoyancy evaluation and electrical bioimpedance measurement.  Onsite at our private facility we do have a "BodPod" and pictures are available for viewing.  Clicking on the image or social media galleries.
+It is highly regarded within the professional and collegiate athletic leagues as one of the top caliber tools for body composition analysis and measurement. Due to only having a 1.5% error reading, it's superior in comparison to the other most accurate forms of body composition measurement analysis such as water buoyancy evaluation and electrical bioimpedance measurement. Onsite at our private facility, we do have a "BodPod" and pictures are available for viewing. Click on the image or view our social media galleries.
 
 
 ##Food First!  No Supplements or Herbs...
 
-Only food first and to be enjoyed in - unlimited portions till satisfied. 
+Only food first and enjoy unlimited portions till satisfied. 
 
 There are no supplements or herbs involved when getting started on your Dietary Progression Program. 
 
-Supplements, herbs, a.k.a. Nutraceutical's may be added as challenges to your program when a "positive dietary progression with only food first" has been established.  We usually can determine this within the first 7-to-14 days.  
+Supplements or herbs (a.k.a. Nutraceuticals) may be added as challenges to your program when a "positive dietary progression with only food first" has been established.  We usually can determine this within the first 7-14 days.  
 
-Multi-Vitamin - Mineral Formula's are usually clients first choice, and if this becomes necessary due to medical history, or your dietary progressions first 7-to-14 days, or it's something you would just feel better about working into your dietary program due to your local grocery store / marketplace situation not having a  variety of foods available, organic fresh or organic frozen.
+Multi-Vitamin - Mineral Formula's are usually a client's first choice, and if this becomes necessary due to medical history, your dietary progression's first 7 to 14 days, or it's something you would just feel better about working into your dietary program due to your local marketplace situation not having a variety of foods available (organic fresh or organic frozen), we have our own "Premium, NON-GMO Multi-Vitamin Mineral Am & Pm Support System Formula. 
 
-We have our own "Premium, NON-GMO Multi-Vitamin Mineral Am & Pm Support System Formula. 
-
-Research based and scientifically designed, the Am & Pm Support Systems are blended to interact with each-other, by day (Am) and by Night (Pm) to give you the extra support you need. The truth is on the label. 
+Research based and scientifically designed, the Am & Pm Support Systems are blended to interact with each other by day (Am) and by Night (Pm) to give you the extra support you need. The truth is on the label. 
 
 <!--( Place short cut to BYG Multi-Vitamin ) Here!-->
 
-Dr.Leon will guide you thru a realistic exciting approach to learning and applying amino-acid applications per your weight, frame size, body composition and height.  
-
-To what’s trending in the supplemental marketplace that’s truly a NoN-GMO label. Dr.Leon will have you trained and ready to "B Your Greatest, when it also becomes time to put your "food detective label reading game face on".  Our Pinterest Link contains almost an entire grocery store and then some, displaying great brands and labels you can rely on. Others good, and the bad labels.  Dr.Leon references our Pinterest boards during your format reviews, our "Chewing The Phat-Podcasts" and product reviews that are upcoming this summer of 2016 on "Dr.LeonMellman's BYGtv channel".  Where  the "other ingredient area's" display the hidden poisons and the window dressings on products don't stand a chance.
+Dr. Leon will guide you through a realistic and exciting approach to learning and applying amino-acid applications per your weight, frame size, body composition, and height, to what’s trending in the supplemental marketplace that’s truly a NoN-GMO label. Dr. Leon will have you trained and ready to "Be Your Greatest", when it also becomes time to put your "food detective label reading game face on".  Our Pinterest Link contains almost an entire grocery store and then some, displaying great brands and labels that you can rely on. Others good, and the bad labels.  Dr. Leon references our Pinterest boards during your format reviews, our "Chewing The Phat-Podcasts" and product reviews that are upcoming this summer of 2016 on "Dr. Leon Mellman's BYGtv channel".  Where  the "other ingredient areas" display the hidden poisons and the window dressings on products don't stand a chance.
 
 ##Undivided Attention | Doctor Driven Counsel - A Unique Program Benefit
 
 When was the last time you had undivided attention for 30 minutes to an hour, 
-weekley or bi-weekley, with a doctor / physician ?  
-Direct contact for any length of time with a doctor / physician is becoming very rare. 
-Due to system driven healthcare.
+weekley or bi-weekley, with a doctor or physician ?  
+Due to system driven healthcare, direct contact for any length of time with a doctor or physician is becoming very rare. 
+
 This will not be your experience here.
 
-Our private healthcare organization's Conceirge focus allows for "Doctor Driven Healthcare". A complete integrated healthcare management system applied at work and at home with in-depth counsel and an on-going constant contact experience with Dr. Leon Mellman of what each participants immune system is accomplishing within the protocol of the program. This will be your experience integrated throughout the next 4-months of counsel.
+Our private healthcare organization's Conceirge focus allows for "Doctor Driven Healthcare". A complete integrated healthcare management system applied at work and at home with in-depth counsel and an ongoing constant contact experience with Dr. Leon Mellman of what each participants immune system is accomplishing within the protocol of the program. This will be your experience integrated throughout the next 4 months of counsel.
 
 A Unique Program Benefit!
 
-Dr. Leon is going into his 16th. year counseling elite executives, Pro Athletes and families.
-Dr. Leon’s counsel of our educational technologies, your "Dietary Playbook"(T.M.) and its integration of internal and external environments related to your chosen profession, the relationship of how the individuals dietary progression parlays to performance in your environment, at the workplace and at home.  
+Dr. Leon is going into his 16th year counseling elite executives, pro athletes, and families.
+Dr. Leon’s counsel of our educational technologies, your "Dietary Playbook"(T.M.) and its integration of internal and external environments related to your chosen profession, the relationship of how the individuals dietary progression pertains to performance in your environment, at the workplace and at home.  
 
-There are a series of educational calls followed by format reviews, a.k.a. ( mini-reviews / food coaching sessions ) these format reviews are scheduled after each educational call to insure pursuit in dietary success.  Educational consultations & format reviews / food coaching sessions are both one-to-one / private calls. Private families or business groups "only" can receive group teleconferences.
+There are a series of educational calls followed by format reviews, a.k.a. mini-reviews and food coaching sessions. These format reviews are scheduled after each educational call to insure pursuit in dietary success. Educational consultations and format reviews/food coaching sessions are both one-on-one private calls. Private families or business groups receive group teleconferences.
 
-Optimal times will be offered in "reservation" ( your "educational" food coaching consultations ) One-to-one contact with Dr. Leon Mellman to properly plan for executive and Pro - travel strategies in inflammatory healthcare management, preparation for practice's, up coming performance's, business or family events, games, post-game counsel or post athletic / post executive careers.  Preparation for a healthy pregnancy and Post pregnancy planned strategies.
+Optimal times will be offered in "reservations" (your "educational" food coaching consultations), one-on-one contact with Dr. Leon Mellman to properly plan for executive and Pro - travel strategies in inflammatory healthcare management, preparation for practices, upcoming performances, business or family events, games, post-game counsel, post athletic or post executive careers and preparation for a healthy pregnancy followed with post pregnancy planned strategies.
 
-The choice to implement these integrated nutritional applications / protocols through-out your life-time, cultivating a new level of health, reaching for an optimal level of performance and immune system efficiency, is solely your choice.  
+The choice to implement these integrated nutritional applications and protocols throughout your lifetime, cultivating a new level of health, reaching for an optimal level of performance, and immune system efficiency is solely your choice.  
+
 This Program is primarily not a public group teleconferencing experience.
-
 All programs are non-refundable.  
 These statements have not been evaluated by the food and drug administration.  
 These programs and products are not intended to diagnose, treat, cure or prevent disease(s).
