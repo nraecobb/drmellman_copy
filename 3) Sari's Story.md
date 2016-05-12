@@ -1,6 +1,6 @@
 #Sari’s Story
 
-Did you ever imagine that you would be hit by a drunk driver running a red light and as a result not walk for four years? 
+Have ever imagined that you would be hit by a drunk driver running a red light and, as a result, not walk for four years? 
 
 At the same time, your 3 year old son, Leon Mellman, who was excelling in Montessori programs, starts to experience what we now know to be, were drastic food reactions. 
 
