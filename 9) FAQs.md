@@ -3,7 +3,7 @@
 FAQ: 1
     
 Amazing Convenience *
-Conceirge Nutritional Healthcare is who we are and all that’s needed for "Your Dietary Success" is a phone and email, no need to meet in person, You Can Remain on the Go!  No waiting around for a doctor or an assistant. Stick your daily schedule; reservations are made at your optimal times for private counsel with Dr. Leon Mellman, whether it be for a format review (30 minute call) or an educational call (60-minutes).  Another strategy enjoyed by all is a voice-memo (sent by Dr. Leon), a savey technology we use to communicate with clients, that's at your convenience to listen in on specific food strategies right from Dr. Leon's interpretation of your data, then report back via text or email.  Constant contact through email, text, cloud communications, and voice - memo technology are all at our fingertips, regardless of time zone and global position.
+Concierge Nutritional Healthcare is who we are and all that’s needed for "Your Dietary Success" is a phone and email, no need to meet in person, You Can Remain on the Go!  No waiting around for a doctor or an assistant. Stick your daily schedule; reservations are made at your optimal times for private counsel with Dr. Leon Mellman, whether it be for a format review (30 minute call) or an educational call (60-minutes).  Another strategy enjoyed by all is a voice-memo (sent by Dr. Leon), a savey technology we use to communicate with clients, that's at your convenience to listen in on specific food strategies right from Dr. Leon's interpretation of your data, then report back via text or email.  Constant contact through email, text, cloud communications, and voice - memo technology are all at our fingertips, regardless of time zone and global position.
 
 FAQ: 
 
@@ -81,7 +81,7 @@ FAQ:
 
 Tax - Incentives | Flex Spending - Healthcare Savings Accounts:
 
-Business and group referrals offer possible tax incentives strategies. This can be discussed with Dr. Leon during your medical interview. Whether this be for the Dietary Programs or Oxygen Chamber programs.
+Business and group referrals offer possible tax incentives strategies. This can be discussed with Dr. Leon during your medical interview. Questions regarding the Dietary Programs or Oxygen Chamber programs.
 
   Please inquire about this. Just ask ?
 
@@ -91,17 +91,18 @@ Business and group referrals offer possible tax incentives strategies. This can 
 FAQ: 
 
 35 Years & Counting, not 2 programs ever the same.
-Dr. Leon Mellman, my first son, to whom I pioneered this application & founded this program, in not accepting the diagnosis’s said at the time but knowing & being confident in what I witnessed his system at the young age of 4 years endure day to day was so consistent with foods at times and brands then so inconsistent with foods and brands at other times, that alone with a few other family events was the inspiration needed to create our nutritional science in dietary software and the application of a dietary progression.  
-The diagnostic formulation is the starting point, your foundation,
- to build your very own dietary portfolio.
 
-If wondering why your having food reactions, delayed symptoms, asking your self, or guessing at which food you think made you gassy today, mucousy, changed your bowls, sucked your energy mentally & physically like a vampire, your becoming frustrated or at that point with all the ingredients on labels that things are just not clear, you have been disciplined in eating clean, maybe even chemical free or have attempted different nutritional theories, practices or protocols or you have just a few foods that you or someone else has limited you to without scientific data or your following a practiced theory that provides too large of a list of foods to create something from yet find its not specific enough for you and you remain suspect of immune related issues that do not make any sense.
+Dr. Leon Mellman, my first son, for whom I pioneered this application and founded this program, in not accepting the diagnoses said at the time but knowing & being confident in what I witnessed his system at the young age of 4 years endure day to day was so consistent with foods at times and brands then so inconsistent with foods and brands at other times, that alone with a few other family events was the inspiration needed to create our nutritional science in dietary software and the application of a dietary progression.  
 
-If any of the above is your experience or none of it and you desire another level of greatness in your life then we may be the right program for you.  My mother Sari Mellman dedicated her life's work to developing this program originally for saving my life and helping others.
+The diagnostic formulation is the starting point, your foundation, to building your very own dietary portfolio.
 
-I'm honored for your attention and time in visiting our website and learning who we are as an organization.  I look forward to your next step in pursuit of dietary excellence.
+Maybe you're having food reactions or delayed symptoms and you're asking yourself (or guessing) which food you think made you gassy, mucousy, changed your bowls, or drained your energy mentally and physically like a vampire. You're becoming frustrated with all the ingredients on labels that are just not clear. Perhaps you have been disciplined in eating clean and/or chemical free or have attempted different nutritional theories, practices, or protocols. Maybe you have just a few foods that you, or someone else, has limited you to without scientific data or have been following a practiced theory that provides too large of a list of foods to create something from yet find it's not specific enough for you and you remain suspicious of immune related issues that do not make any sense.
 
-This is why we are different, We have an Integrated Nutritional Program for Applied Immunology.
+If any of the above is your experience or you desire another level of greatness in your life, we may be the right program for you. I have dedicated my life's work to developing this program to save my son's life and help others.
+
+We're honored for your attention and time in visiting our website and learning who we are as an organization. We look forward to your next step in pursuit of dietary excellence.
+
+This is why we are different. We have an Integrated Nutritional Program for Applied Immunology.
 
 ( Short cut to:
 
