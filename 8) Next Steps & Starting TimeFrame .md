@@ -13,7 +13,7 @@ _______________________________________________________________
 
 Request a reservation for your medical interview by submitting your contact information.
 
-It is necessary to download the (PDF) Nondisclosure Intellectual Property Right Acknowledgement of Engagement Agreement, your NDA-IP-AOE.  This is a privacy healthcare document to be signed and submitted back to us with a copy of your driver's license or state, military, or university issued I.D., as required by concierge healthcare laws.  
+It is necessary to download the (PDF) Non-Disclosure Intellectual Property Right Acknowledgement of Engagement Agreement, your NDA-IP-AOE.  This is a privacy healthcare document to be signed and submitted back to us with a copy of your driver's license or state, military, or university issued I.D., as required by concierge healthcare laws.  
 This document discloses details and states that everything discussed during your medical interview is private and confidential to you and Dr. Leon Mellman.
 
 Upon receiving your NDA-IP-AOE with ID attached, your official welcome letter will be emailed to you from our concierge front desk offering dates and times for your medical interview reservation.
