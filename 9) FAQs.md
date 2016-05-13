@@ -81,18 +81,14 @@ FAQ:
 
 Tax - Incentives | Flex Spending - Healthcare Savings Accounts:
 
-Business and group referrals offer possible tax incentives strategies. This can be discussed with Dr. Leon during your medical interview. Questions regarding the Dietary Programs or Oxygen Chamber programs.
-
-  Please inquire about this. Just ask ?
-
-
+Business and group referrals offer possible tax incentive strategies. Any questions regarding the Dietary Programs or Oxygen Chamber programs can be discussed with Dr. Leon during your medical interveiw.
 
 
 FAQ: 
 
 35 Years & Counting, not 2 programs ever the same.
 
-Dr. Leon Mellman, my first son, for whom I pioneered this application and founded this program, in not accepting the diagnoses said at the time but knowing & being confident in what I witnessed his system at the young age of 4 years endure day to day was so consistent with foods at times and brands then so inconsistent with foods and brands at other times, that alone with a few other family events was the inspiration needed to create our nutritional science in dietary software and the application of a dietary progression.  
+I pioneered this application and founded this program for my first son, Dr. Leon Mellman, because I did not accept the diagnoses at that time. I was confident that what I had witnessed his system endure day to day, at the young age of 4, was so consistent with foods and brands at times and then so inconsistent with foods and brands at other times. That, combined with a few other family events, was the inspiration I needed to create our nutritional science in dietary software and the application of a dietary progression.   
 
 The diagnostic formulation is the starting point, your foundation, to building your very own dietary portfolio.
 
