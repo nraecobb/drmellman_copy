@@ -21,7 +21,7 @@
 
 ##Exercise is *not* a requirement 
 
-On this program, you are going to exercise for the “right” reasons and will enjoy freedom from the “control the scale syndrome”. Exercise is not a factor in weight loss and does not accelerate weight loss. Calories, fat, fiber, and carbohydrates are not counted on this program. Nothing is counted because there are unlimited portions. When food energy is used correctly by the body as 100% cellular energy, whatever the food provides results in a positive. This is learned and understood through your counsel in Dietary Progression and submitted data. Exercise is always good, cardiovascularly, for muscles and many other functions in the body. Exercise should be performed for help and “not to control the scale”. Exercise to control the scale has become an unhealthy trend, contributing to addiction issues for a very large percentage of the female and male population, at all ages.
+On this program, you are going to exercise for the “right” reasons and will enjoy freedom from the “control the scale syndrome”. Exercise is not a factor in weight loss and does not accelerate weight loss. Calories, fat, fiber, and carbohydrates are not counted on this program. Nothing is counted because there are unlimited portions. When food energy is used correctly by the body as 100% cellular energy, whatever the food provides results in a positive. This is learned and understood through your counsel in Dietary Progression and submitted data. Cardiovascular exercise is always good for muscles and many other functions in the body. Exercise should be performed for help and “not to control the scale”. Exercise to control the scale has become an unhealthy trend, contributing to addiction issues for a very large percentage of the female and male population, at all ages.
 
 This exercise to control the scale syndrome contributes to eating disorders and unhealthy food related behavior patterns.  
 
@@ -48,7 +48,7 @@ You can stop weight loss at any time just by eating foods that you will learn ca
 
 The fact that most clients realize that **REST** a.k.a. *Horizontal Time* will allow us to guide you in mapping out your *Cleaning Cycles*™ and can accelerate weight-loss incinerating body fat whether just lying down in the HT position, sleeping or not. As clients say, “This Is A Magical Food Moment!”
 
-Many professional athletes would use exercise extensively, cardiovascularly approximating a 3,500 cal-burn two times daily and eating only one meal or sometimes two meals per day, with some sort of starvation paired with this extreme cardiovascular routines or obsessive cardio in an attempt to manipulate weight to try to meet their contract weight or weight requirements for positions that they play. That did not work for them. Overworked executives and parents, due to healthcare plan requirements or re-exams, fall into the same ill habits. All unhealthy and addictive practices.
+Many professional athletes would use exercise extensively, approximating a 3,500 cal-burn two times daily and eating only one meal or sometimes two meals per day, with some sort of starvation paired with this extreme cardiovascular routines or obsessive cardio in an attempt to manipulate weight to try to meet their contract weight or weight requirements for positions that they play. That did not work for them. Overworked executives and parents, due to healthcare plan requirements or re-exams, fall into the same ill habits. All unhealthy and addictive practices.
 
 Only when they began this program and ate the correct foods for their systems, feeding their systems the correct foods until satisfied by allowing themselves unlimited portions, were they able to reach their goals and be at the low body fat percentages that they thought were impossible for them to achieve. Realizing they lose more weight when they rest and eat the correct foods with the right amount of horizontal time at the right time takes the stress out of exercise and the guilt out of relaxation. At the same time being able to reach their goals and enjoy food! 
 
@@ -87,7 +87,7 @@ Nutrients in specific fruits, vegetables, grains, and many other food groups, al
 
 ##Female Systems,
 
-There will also be more female hormones. Premenstrual syndrome becomes only a memory for women and perimenopause can be smooth without symptoms. Menopause becomes natural as it should be with less or no hormones necessary, especially because bone density can increase as a result of eating the correct foods for the particular system. 
+There will also be more female hormones. Premenstrual syndrome becomes only a memory for women and Perimenopause can be smooth without symptoms. Menopause becomes natural as it should be with less or no hormones necessary, especially because bone density can increase as a result of eating the correct foods for the particular system. 
 
 After a period of time, women that begin their program with hormone replacement therapy medication start to be intrigued by their Dietary Progressions success and feel their systems change for the better. These women start to entertain the idea of wanting to experiment rotating, or weaning themselves to less doses or not taking this medication. When this type of situation presents itself, we always suggest that they consult with their other physicians which may find a specific niche for their own system while on their correct foods and rotate their medication over a longer period of time, or result in not taking the medication. Many clients reduce their doses of prescribed medications, with coordinated guidance, and do well without it.   
 
@@ -105,7 +105,7 @@ Both male and female clients also report better balance in their own hormones. S
 
 You will understand what your body is communicating from an exact craving, when or if they do occur, and pattern out your Dietary Progression with the coordinating white blood cells end organ systems that apply to those specific foods, working and not working, to reveal a pattern of immunology, only revealed from your Dietary Progressions Program. You won't be tormented by cravings because you're actually satisfied from the correct foods you're eating. Finally, you have a scientific reason particular to your system. 
 
-If you do start to experience cravings, our integrated application demonstrates they come from your most neurological receptive male and female organs through neuro-chemical communication. This being said, and supported in research, we acknowledge that your cravings need to be satisfied from challenge foods to be proven for compatibility within your Dietary Playbook's diagnostic section. That's taking the guilt out of the craving. Now you're able to enjoy the food that satisfies the craving as a healthy association because you understand why and where the craving is coming from! 
+If you do start to experience cravings, our integrated application demonstrates they come from your most neurological receptive male and female organs through neurochemical communication. This being said, and supported in research, we acknowledge that your cravings need to be satisfied from challenge foods to be proven for compatibility within your Dietary Playbook's diagnostic section. That's taking the guilt out of the craving. Now you're able to enjoy the food that satisfies the craving as a healthy association because you understand why and where the craving is coming from! 
 That's *Food Freedom*™!
 
 
@@ -119,7 +119,7 @@ Medicated clients suffering from heartburn, indigestion, and different forms of 
 
 Clients with diabetics type-1 and type-2 learn to regulate and reduce insulin with their individual systems by using the correct foods more efficiently on a cellular level. This is witnessed when patterning out data and they are amazed at how specific foods interact differently with their particular systems. 
 
-Clients that have Lupus, Lyme’s Disease (or associated symptoms of lyme's), short-term and long-term suffering, sinus congestion, excessive mucous in upper and lower respiratory systems, seasonal immunogenic suppression, chronic fatigue syndromes, fibromyalgia, skin rashes, hot painful joints, itching and severe redness, forms of rosacea, eczema and psoriatic arthritic conditions, have all reached levels of improved management and reduced insulin levels. Some clients have reduced medications to none at all and others have achieved remission on this program. This improvement occurs regardless of age. Coordinating doctors find cooperateration by reducing, weaning, or removing patients from medication as they witness success. People have to help their bodies by eating the correct energy in the form of correct foods, so it can get the job done.
+Clients that have Lupus, Lyme’s Disease (or associated symptoms of lyme's), short-term and long-term suffering, sinus congestion, excessive mucous in upper and lower respiratory systems, seasonal immunogenic suppression, chronic fatigue syndromes, fibromyalgia, skin rashes, hot painful joints, itching and severe redness, forms of rosacea, eczema and psoriatic arthritic conditions, have all reached levels of improved management and reduced insulin levels. Some clients have reduced medications to none at all and others have achieved remission on this program. This improvement occurs regardless of age. Coordinating doctors find cooperation by reducing, weaning, or removing patients from medication as they witness success. People have to help their bodies by eating the correct energy in the form of correct foods, so it can get the job done.
 
 ##Grow Muscle | Gain Weight | Bone Density
 
@@ -157,11 +157,11 @@ Dr. Leon will guide you through a realistic and exciting approach to learning an
 ##Undivided Attention | Doctor Driven Counsel - A Unique Program Benefit
 
 When was the last time you had undivided attention for 30 minutes to an hour, 
-weekley or bi-weekley, with a doctor or physician? Due to system driven healthcare, direct contact for any length of time with a doctor or physician is becoming very rare. 
+weekly or biweekly, with a doctor or physician? Due to system driven healthcare, direct contact for any length of time with a doctor or physician is becoming very rare. 
 
 This will not be your experience here.
 
-Our private healthcare organization's Conceirge focus allows for "Doctor Driven Healthcare". A complete integrated healthcare management system applied at work and at home with in-depth counsel and an ongoing constant contact experience with Dr. Leon Mellman of what each participants immune system is accomplishing within the protocol of the program. This will be your experience integrated throughout the next 4 months of counsel.
+Our private healthcare organization's concierge focus allows for "Doctor Driven Healthcare". A complete integrated healthcare management system applied at work and at home with in-depth counsel and an ongoing constant contact experience with Dr. Leon Mellman of what each participants immune system is accomplishing within the protocol of the program. This will be your experience integrated throughout the next 4 months of counsel.
 
 ###A Unique Program Benefit!
 

@@ -119,7 +119,7 @@ If you only use the diagnostic findings without the application then...
 
 If you do not go through the Dietary Progression, real improvement will not occur due to the fact that you will always have other interference from foods that were not identified as problematic, whether determined through the diagnostic formulations or because of their "unknown mechanism", but are still being eaten by the client.
  
-For over 35 years, our research-based and developed dietary software by Sari Mellman, PhD had revealed more Unknowns and yieled an in-depth understanding of one's immune system not typically seen within many types of laboratory panel ordering, food sensitivity testing, or different forms of allergy testing.
+For over 35 years, our research-based and developed dietary software by Sari Mellman, PhD had revealed more Unknowns and yielded an in-depth understanding of one's immune system not typically seen within many types of laboratory panel ordering, food sensitivity testing, or different forms of allergy testing.
  
 This is where the starting point of your medical interview, your blood sample, the initial laboratory processing, and then the final staging of your specimen for Dr. Leon Mellman to diagnostically formulate your Dietary Progression.
 

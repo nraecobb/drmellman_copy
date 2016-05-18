@@ -3,7 +3,7 @@
 FAQ: 1
     
 Amazing Convenience *
-Concierge Nutritional Healthcare is who we are and all that’s needed for "Your Dietary Success" is a phone and email, no need to meet in person, You Can Remain on the Go!  No waiting around for a doctor or an assistant. Stick your daily schedule; reservations are made at your optimal times for private counsel with Dr. Leon Mellman, whether it be for a format review (30 minute call) or an educational call (60-minutes).  Another strategy enjoyed by all is a voice-memo (sent by Dr. Leon), a savey technology we use to communicate with clients, that's at your convenience to listen in on specific food strategies right from Dr. Leon's interpretation of your data, then report back via text or email.  Constant contact through email, text, cloud communications, and voice - memo technology are all at our fingertips, regardless of time zone and global position.
+Concierge Nutritional Healthcare is who we are and all that’s needed for "Your Dietary Success" is a phone and email, no need to meet in person, You Can Remain on the Go!  No waiting around for a doctor or an assistant. Stick your daily schedule; reservations are made at your optimal times for private counsel with Dr. Leon Mellman, whether it be for a format review (30 minute call) or an educational call (60-minutes).  Another strategy enjoyed by all is a voice-memo (sent by Dr. Leon), a savvy technology we use to communicate with clients, that's at your convenience to listen in on specific food strategies right from Dr. Leon's interpretation of your data, then report back via text or email.  Constant contact through email, text, cloud communications, and voice - memo technology are all at our fingertips, regardless of time zone and global position.
 
 FAQ: 
 
@@ -81,7 +81,7 @@ FAQ:
 
 Tax - Incentives | Flex Spending - Healthcare Savings Accounts:
 
-Business and group referrals offer possible tax incentive strategies. Any questions regarding the Dietary Programs or Oxygen Chamber programs can be discussed with Dr. Leon during your medical interveiw.
+Business and group referrals offer possible tax incentive strategies. Any questions regarding the Dietary Programs or Oxygen Chamber programs can be discussed with Dr. Leon during your medical interview.
 
 
 FAQ: 
