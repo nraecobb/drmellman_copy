@@ -26,15 +26,15 @@ Within my first 19 years, I discovered that there are many more "Unknown Mechani
 
 During those 19 years (plus a few more) I documented all the Unknown Mechanisms that presented themselves with the Known mechanisms.  This very Unknown territory lead me to pioneer our very own *Dietary Diagnostic Formulation*  software.  With the use of our integrated dietary software and our protocol/application – the Dietary Progressions Program – your system is able to correct and repair itself in a short period of time resulting in improved health, performance, and weight loss.
 
-If there are some foods, chemicals, preservatives, or additives that are causing an inflammatory response or symptoms within your system, (gas, bloating, sinus problems, different forms of reflux, your weight going up on the scale), your educational call series, which many topics are mentioned throughout the website, followed up by your format reviews with a list of other parameters that we review during your initial orientation call, **Titled, How To Play the Game**™ guiding you through four months of counsel.
+If there are some foods, chemicals, preservatives, or additives that are causing an inflammatory response or symptoms within your system, (gas, bloating, sinus problems, different forms of reflux, or your weight going up on the scale), your educational call series (in which many topics are mentioned throughout the website), followed up by your format reviews with a list of other parameters that we review during your initial orientation call, **Titled, How To Play the Game**™ to guide you through your four months of counsel.
 
-Having an interactive experience with your system will aid in understanding what your system is going to communicate to you from the correct foods being eaten. Starting right in your mouth, digestive neurological highways of communication are shared between your nervous system and your entire digestive system.
+Having an interactive experience with your system will aid in understanding what your system is going to communicate to you from the correct foods being consumed. Starting right in your mouth, digestive neurological highways of communication are shared between your nervous system and your entire digestive system.
 
-Connecting our *Dietary Diagnostic Software* and the application Dietary Progressions provides your **Dietary Playbook**™, a guide for your system to evolve with these Known and Unknown Mechanisms. During your Dietary Progression, our dietary diagnostic software formulation will reveal the Unknowns that may be causing problems, including your body holding weight or contributing to ill health.  
+Connecting our *Dietary Diagnostic Software* and the application Dietary Progressions completes your **Dietary Playbook**™, a guide for your system to evolve with these Known and Unknown Mechanisms. During your Dietary Progression, our dietary diagnostic software formulation will reveal the Unknowns that may be causing problems, including your body holding weight or contributing to ill health.  
 
 Your system can have the opportunity to correct and repair itself. As every system is different, some achieve correction in a short period of time but for others it's over a longer period of time. The parameters of establishing what defines correction, or what determines your own correction, will be initially discussed during your medical interview and again during your orientation call, **Titled, How To Play The Game**™.  
 
-This when your **Dietary Playbook**™ is presented to you by Dr. Leon Mellman, for your initial understanding of the diagnostic materials within, as it directly relates to your immune system.  Your **Dietary Playbook**™ arrives with a very accurate scale that offers specific features Dr. Leon will provide during your 4 months of counsel, implementing and interpreting the new rules to your immune system, during your format reviews and educational calls, when submitting your daily data (via email), implementing your **Dietary Progression**™.  
+This when your **Dietary Playbook**™ is presented to you by Dr. Leon Mellman, for your initial understanding of the diagnostic materials, as it directly relates to your immune system.  Your **Dietary Playbook**™ arrives with a very accurate scale that offers specific features Dr. Leon will provide during your 4 months of counsel, implementing and interpreting the new rules to your immune system during your format reviews and educational calls, when submitting your daily data (via email), implementing your **Dietary Progression**™.  
 
 From your day-one foods through your diagnostically formulated challenge lists, magical food moments begin to happen. You're introduced to multiple concepts that, clients agree, are eye opening experiences - windows of opportunity in learning how to tap into your your body's own sleep technology, such as *Mapping Out Your Cleaning Cycles*™ and what's been dubbed, your *Horizontal Time - the Horizontal Position*™. a.k.a. REST and learning about *The PM Scale Reading*™, your *prostaglandins hormone* technology.
 
@@ -45,11 +45,11 @@ Nutrition's best kept secret *is in your blood*!
 
 #Timing is Everything
 
-When foods are eaten, they become chemical structures. If they become the wrong chemical structure for the food group they belong to certain white blood cell membranes become irritated and inflamed, then become toxic dead weight and die.
+When foods are consumed, they become chemical structures. If they become the wrong chemical structure for the food group they belong to certain white blood cell membranes become irritated and inflamed, then become toxic dead weight and die.
 
-The cells interpret this as an attack within your system and contributes to your weight gain and toxicity by suppressing your immune system, causing body parts to swell and leave you feelings as if you are carrying around a dumbbell of toxic dead weight.
+The cells interpret this as an attack within your system and contributes to your weight gain and toxicity by suppressing your immune system, causing body parts to swell and leave you feeling as if you are carrying around a dumbbell of toxic dead weight.
 
-Different white blood cells help support the function of many specific systems in your body. Through the application we developed *Dietary Progressions*, we can tell which system appears to be trending toward dysfunction and how your body will try to correct and repair with the foods that are in your particular program. Timing is everything with the right foods being eaten at the right time with the right amount of Horizontal Time, *HT*™.
+Different white blood cells help support the function of many specific systems in your body. Through the application we developed *Dietary Progressions*, we can tell which system appears to be trending toward dysfunction and how your body will try to correct and repair with the foods that are in your particular program. Timing is everything with the right foods being consumed at the right time with the right amount of Horizontal Time, *HT*™.
 
 When it’s the correct food for your system, this equals (=) the right energy for your system.
 
@@ -74,7 +74,7 @@ When it’s the correct food for your system, this equals (=) the right energy f
 
 The wrong foods equal (=) the wrong energy. 
 
-Your body will have the opportunity to manufacture more anti-inflammatory hormones when you eat the correct fats for your system, allowing efficient and effective Prostaglandin function which can cause the positive side-effect experience of less pain after exercise, as the professional athletes who have practiced our protocols have found. 
+Your body will have the opportunity to manufacture more anti-inflammatory hormones when you eat the correct fats for your system, allowing efficient and effective Prostaglandin function, which can cause the positive side effect experience of less pain after exercise, as the professional athletes who have practiced our protocols have found. 
 
 Many NFL, MLB, and PGA/LPGA clients, elite executives, and working parents report that they do not feel the the need to take anti-inflammatory medication anymore after games and tournaments because their bodies supply more of their own anti-inflammatory hormones. This is also the reason that arthritic pain is relieved on this program. Other associated inflammatory issues gain relief and healthier management on this program. With coordinated guidance, many clients have reduced their doses of prescribed medications.
 
@@ -83,7 +83,7 @@ Many NFL, MLB, and PGA/LPGA clients, elite executives, and working parents repor
 ## Recovery Day Protocol 
 
 
-When it comes to going off program for one meal, which we call a “Food-Lotto”™ or one day entirely, maybe a holiday, or a few days like a weekend getaway, or longer, like a vacation, you will know exactly which foods are specific recovery day foods, when returning to your program and for your particular system. This becomes self-empowering and "cell-empowering". By trusting and knowing which foods to start back on the program with. This accelerates the scale in the right direction, recovering within a 48 hour to 72 hour timeframe. Your system will be right back to where it was before you went off program, or very close to it.
+When it comes to going off program for one meal, which we call a “Food-Lotto”™, or one day entirely, such as a holiday, or a few days like a weekend getaway, or longer, like a vacation, you will know exactly which foods are specific recovery day foods when returning to your program and for your particular system. This becomes self-empowering and "cell-empowering" by trusting and knowing which foods to start back on the program with. This accelerates the scale in the right direction, recovering within a 48 hour to 72 hour timeframe. Your system will be right back to where it was before you went off program, or very close to it.
 
 The inflammation put on while off the program magically disappears and cannot be found on the scale, under the bed sheets, or at the gym because you didn't go. You chose to eat the right foods, get the right amount of horizontal time, in only the horizontal position and your system accelerated and incinerated the removal of inflammation that was put on when you went off program.
 
@@ -93,13 +93,13 @@ You'll be lighter, have more energy, more stamina, and a stronger mental focus b
 
 Female Systems have two options each month when their menstrual cycle is about to begin.
 
-Option #1, is to go off program and enjoy yourself in case you are having cravings because of hormonal neurotransmission. During this time of hormonal neural transmission almost all female systems state they experience weight gain, feel and see increased levels of inflammation in their body, even some moodiness. We teach our female clients to take advantage of this time, and enjoy it
+Option #1, is to go off program and enjoy yourself in case you are having cravings because of hormonal neurotransmission. During this time of hormonal neural transmission, most women state they experience weight gain, feel and see increased levels of inflammation in their body, and even some moodiness. We teach our female clients to take advantage of this time, and enjoy it
 
 or 
 
 Option #2, Keep your system *food-focused*™ on achieving more efficiency and a level of hormonal correction.  Remain on program to have your cells become more efficient during your menstrual cycle, which can result in less hemorrhage, less fatigue, and more energy, both mentally and physically.  When option 2 is practiced within back to back months, more consistency between menstrual cycles is reported and timing of ovulation and menstrual cycle is improved.  A profound experience by some is regaining a menstrual cycle that has disappeared and others come to our dietary program seeking to increase their chances of pregnancy naturally, by attempting to regain their menstrual cycle by eating the right Prostaglandin.
 
-Regardless if the female system chooses option one or option two, it becomes fun if you know the rules to play the game. Truly enjoy this time because either way you know which foods will help you recover and get you right back to where you were before. If you choose to stay on your foods, as a result your menstrual cycle ended early and the positive side effect is you have an all-time new low weight, or close to it.
+Regardless if you choose option one or option two, it becomes fun if you know the rules to play the game. Truly enjoy this time because either way you know which foods will help you recover and get you right back to where you were before. If you choose to stay on your foods, as a result your menstrual cycle ended early and the positive side effect is you have an all-time new low weight, or close to it.
 
 Remember if you vacation on weekends or weeks at a time, it is very easy to come back on program where you left off and find continued success. I do suggest you enjoy yourself on vacations, holidays, weekends, or a day off, or you're just going to perform a food lotto until all the foods that work for you are what she would eat on vacation anyway. Yes, many clients enjoy Haagen Dazs & different variations of Organic ice cream from dairy, coconut, and many other choices in the marketplace as part of their program, with unlimited portions daily with great dietary success.
 
@@ -107,7 +107,7 @@ Remember if you vacation on weekends or weeks at a time, it is very easy to come
 
 # (An Interactive Experience)
 
-It’s at this time when on your *unique* individualized Dietary Progression, that your system is seeking compatibility through immune system parameters, rules, and protocols we share with you in counsel. It's the integration of your Dietary Progression that connects the diagnostic foundation formulated for you. As you receive your "Dietary Playbook" and start with the initial orientation call, “Titled – How To Play The Game”, to your individual format reviews using an interactive downloadable app spreadsheet day to day, and educational calls specific to your diagnostic section in your “Dietary Playbook" mapping out your dietary progression to remain food-focused and stay on program. Dr. Leon will be your guide.
+It’s at this time when on your *unique* individualized Dietary Progression that your system is seeking compatibility through immune system parameters, rules, and protocols we share with you in counsel. It's the integration of your Dietary Progression that connects the diagnostic foundation formulated for you. As you receive your "Dietary Playbook" and start with the initial orientation call, “Titled – How To Play The Game”, to your individual format reviews using an interactive downloadable app spreadsheet day to day, and educational calls specific to your diagnostic section in your “Dietary Playbook" mapping out your dietary progression to remain food-focused and stay on program. Dr. Leon will be your guide.
  
 Start to have an interactive experience on the right foods with your body. Most importantly understand it; your body's feedback, your immunogenic response! From food to food in which your immune system interacts and communicates with you, revealing your unknowns, delayed reaction patterns (if any), *Mapping Out Your Cleaning Cycles*, inflammation related to our *Scale Reactivity System*™ and building your specific list of foods that *prove compatible* to white blood cells.
 
