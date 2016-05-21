@@ -38,7 +38,7 @@ In Care Of: The New Client or The ComeBack-Client,(RE-Engineering)
 
 ### This Timeline Designates the Next Steps, Following your Medical Interview:
 
-Following your initial deposit or medical interview, your specimen kit will ship ( Fedex ).
+Following your initial deposit or medical interview, your specimen kit will ship via FedEx.
 
 ##### FedEx Specimen Kit
 Your specimen kit will be shipped to the confirmed address from the contact information submitted or confirmed during your medical interview.
@@ -47,7 +47,7 @@ Logistics from FedEx systems will be sent to your e-mail.
 
 ##### Your Sample Blood-Draw
 
-Included with your specimen kit are very straight forward instructions with a pre-paid Fedex overnight air-ticket. Your blood sample must be sent through Fedex to Dr. Leon's lab the same day your blood is drawn.  We suggest you seek out a private physician or a private out parcel service, such as an "Any Lab Test", or contact an outside physician's office, such as a walk-in urgent care center that offers simple fees for blood draws.  
+Included with your specimen kit are very straight forward instructions with a pre-paid FedEx overnight air-ticket. Your blood sample must be sent through Fedex to Dr. Leon's lab the same day your blood is drawn.  We suggest you seek out a private physician or a private out parcel service, such as an "Any Lab Test", or contact an outside physician's office, such as a walk-in urgent care center that offers simple fees for blood draws.  
 Dr. Leon will instruct you on this process.
 
 ### Specimens Received
