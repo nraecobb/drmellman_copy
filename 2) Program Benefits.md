@@ -25,7 +25,7 @@ On this program, you are going to exercise for the “right” reasons and will 
 
 This exercise to control the scale syndrome contributes to eating disorders and unhealthy food related behavior patterns.  
 
-It starts from early stages of childhood and adolescence and through college years, influencing our decision making professionally and personally. During years of practice within this field, we see these trends having an ill effect on hormonal development for females and males. Ranging from reproduction issues, menstrual cycle issues, aging in an unhealthy manner, maintaining muscle mass, growing new muscle, insulin deficiency, insulin-inefficiency, ill-carbohydrate assimilation, erectile – libido concerns, and bone density.  
+It starts from early stages of childhood and adolescence and continues through college years, influencing our decision making both professionally and personally. During years of practice within this field, we see these trends having an ill effect on hormonal development for females and males. Ranging from reproduction issues, menstrual cycle issues, aging in an unhealthy manner, maintaining muscle mass, growing new muscle, insulin deficiency, insulin-inefficiency, ill-carbohydrate assimilation, erectile – libido concerns, and bone density.  
 
 On this program you are going to exercise for the *right* reasons and will enjoy freedom from the *control the scale syndrome*.
 
@@ -54,7 +54,7 @@ Only when they began this program and ate the correct foods for their systems, f
 
 This is self-empowering and a Win/Win.
 
-Creating a new physical and emotional relationship with the correct foods, listening and feeling what’s right and when you're satisfied. Having an interactive experience with your system throughout your Dietary Progression's New Rules and understanding it.
+You'll create a new physical and emotional relationship with the correct foods by listening and feeling what’s right and when you're satisfied and have an interactive experience with your system throughout your Dietary Progression's New Rules to help you understand it.
 
 When on the correct foods at the right time with the right amount of Horizontal Time, regardless if you're awake or sleeping, your body is given the optimal opportunity to tap into innate intelligence to recover and regenerate from being vertical all day on earth's gravitational pull. 
 
@@ -68,17 +68,15 @@ You're introduced to multiple concepts that, clients agree, are eye opening expe
 
 ##Hormones
 
-Both Female and Male,
-
-Satisfying cravings without over-eating and remaining incredibly satisfied by what foods are working and proven to be compatible with their systems. 
+Both females and males want to satisfy cravings without over-eating and remain incredibly satisfied by what foods are working and proven to be compatible with their systems. 
 
 This is exactly what our clients experience when on the correct foods that Prostaglandin pathways can now use the correct fats for that individual system. This is the catalyst to accelerate weight loss and defy the look of aging, beautifying your skin as it starts to retain more nutrients due to those Prostaglandin pathways, and gain strength and new muscle mass by manufacturing male or female hormones. Less inflammation equals less pain and some clients report faster mental processing with improved attention span.
 
 Men and Women in the United States, and now abroad, actually grow up from a young stage in life being exposed to synthetic hormones in many variations, from conventional and GMO foods to prescribed skin and respiratory medications. 
 
-Adolescence is surrounded by synthetic hormones like birth control that alter hormonal communication internally with more short-term and long-term side effects being experienced, more than ever before.
+Adolescence is surrounded by synthetic hormones, such as birth control, that alters hormonal communication internally with more short-term and long-term side effects being experienced, more than ever before.
 
-Respiratory and dermatological steroids also have become more common in childhood, adolescence, and adulthood.  Seasonally becoming winded with respiratory fatigue, wheezy, excessive mucous, skin rashes with severe redness and itching, forms of rosacea, eczema and psoriatic arthritic conditions, all correlate to a significant amount of the population now living on many different variations of steroids and synthetic hormones. 
+Respiratory and dermatological steroids also have become more common in childhood, adolescence, and adulthood.  Seasonally becoming winded with respiratory fatigue, wheezy breathing, excessive mucous, skin rashes with severe redness and itching, forms of rosacea, eczema, and psoriatic arthritic conditions, all correlate to a significant amount of the population now living on many different variations of steroids and synthetic hormones. 
 
 What if the foods these particular systems grew up eating were problematic? Or the foods you're eating now have become dangerous for that system, contributing to or the basic fundamental cause of those symptoms? 
 
@@ -87,11 +85,11 @@ Nutrients in specific fruits, vegetables, grains, and many other food groups, al
 
 ##Female Systems,
 
-There will also be more female hormones. Premenstrual syndrome becomes only a memory for women and Perimenopause can be smooth without symptoms. Menopause becomes natural as it should be with less or no hormones necessary, especially because bone density can increase as a result of eating the correct foods for the particular system. 
+There will also be more female hormones. Premenstrual syndrome becomes only a memory for women and perimenopause can be smooth without symptoms. Menopause becomes as natural as it should be with less or no hormones necessary, especially because bone density can increase as a result of eating the correct foods for the particular system. 
 
 After a period of time, women that begin their program with hormone replacement therapy medication start to be intrigued by their Dietary Progressions success and feel their systems change for the better. These women start to entertain the idea of wanting to experiment rotating, or weaning themselves to less doses or not taking this medication. When this type of situation presents itself, we always suggest that they consult with their other physicians which may find a specific niche for their own system while on their correct foods and rotate their medication over a longer period of time, or result in not taking the medication. Many clients reduce their doses of prescribed medications, with coordinated guidance, and do well without it.   
 
-Different forms of birth control pills, or other medications that have hormonal side effects, are taken for many years without considering any effects on a menstrual cycle, the system that's endured this type of treatment (having the ability to reproduce a healthy baby on their own without the need for induced hormones to do so), or post-pregnancy health. Hormones needed for pregnancy are becoming just as much a trend as it is for menopausal women to end up addicted or dependent on hormonal therapy, for the remainder of their lives or close to it. The severe silence that surrounds the side-effects is different for each. Not knowing the way their bodies feel without the hormones / medications because the foods being eaten at that time with hormones could not be used efficiently. Then when the correct foods can be eaten with a focus of increased cellular energy with respect to organ pathways, systems have the opportunity to repair and correct naturally. 
+Different forms of birth control pills, or other medications that have hormonal side effects, are taken for many years without considering any effects on a menstrual cycle, the system that's endured this type of treatment (having the ability to reproduce a healthy baby on their own without the need for induced hormones to do so), or post-pregnancy health. Hormones needed for pregnancy are becoming just as much a trend as it is for menopausal women to end up addicted or dependent on hormonal therapy for the remainder of their lives. The severe silence that surrounds the side-effects is different for each system, not knowing the way their bodies feel without the hormones/medications because the foods being consumed at that time with hormones could not be used efficiently. Then when the correct foods can be eaten with a focus of increased cellular energy with respect to organ pathways, systems have the opportunity to repair and correct naturally. 
 
 Other women come to the program seeking an attempt to hold off on hysterectomies and re-establish a menstrual cycle by accessing their body's own female abilities. Women in pursuit of their inherent right to have a natural pregnancy are increasing these chances with the correct foods that can repair and correct prostaglandin function, to our understanding, from what has been missing for up to six to nine months, then gain their body's own ability to regulate hormonal function knowing from their own personal research that their system should manage this on their own, rather than being stopped by a procedure, medications, or synthetic hormones, and the possibility of living with short-term or long-term doses of side-effects.
 
