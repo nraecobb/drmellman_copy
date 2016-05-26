@@ -25,13 +25,13 @@ On this program, you are going to exercise for the “right” reasons and will 
 
 This exercise to control the scale syndrome contributes to eating disorders and unhealthy food related behavior patterns.  
 
-It starts from early stages of childhood and adolescence and continues through college years, influencing our decision making both professionally and personally. During years of practice within this field, we see these trends having an ill effect on hormonal development for females and males. Ranging from reproduction issues, menstrual cycle issues, aging in an unhealthy manner, maintaining muscle mass, growing new muscle, insulin deficiency, insulin-inefficiency, ill-carbohydrate assimilation, erectile – libido concerns, and bone density.  
+It starts from early stages of childhood and adolescence and continues through college years, influencing our decision making both professionally and personally. During years of practice within this field, we see these trends having an ill effect on hormonal development for females and males. Ranging from reproduction issues, menstrual cycle issues, aging in an unhealthy manner, maintaining muscle mass, growing new muscle, to insulin deficiency, insulin-inefficiency, ill-carbohydrate assimilation, erectile – libido concerns, and bone density.  
 
 On this program you are going to exercise for the *right* reasons and will enjoy freedom from the *control the scale syndrome*.
 
-Eating the right foods for your system can give you the day-to-day food efficiency and consistency to rely on. In counsel, you will learn to understand and interpret our *Scale Reactivity System*™ as a parameter of how your body and the food are interacting. Consistency from the foods will work using the right foods to manage your weight or lose weight rather than forcing your body into exercise to control the scale syndrome, which is an unhealthy addiction. Most people force exercise while eating the wrong foods, possibly dangerous foods, for their systems at the time of forced exercise. 
+Eating the right foods for your system can give you the day-to-day food efficiency and consistency to rely on. In counsel, you will learn to understand and interpret our *Scale Reactivity System*™ as a parameter of how your body and the foods are interacting. Consistency from the foods will work by using the right foods to manage or lose weight rather than forcing your body into exercise to control the scale syndrome, which is an unhealthy addiction. Most people force exercise while eating the wrong foods, possibly dangerous foods, for their systems at the time of forced exercise. 
 
-Eating the right foods for your system, enjoying the weight-loss and actually feeling lighter, become your reality on our program. Exercise is a pleasure rather than a stress.
+Eating the right foods for your system, enjoying the weight-loss, and actually feeling lighter becomes your reality on our program. Exercise is a pleasure rather than a stress.
 
 When food which is chemical energy is used correctly by the body, whatever that food provides results in a positive. 
 
@@ -46,35 +46,35 @@ You can stop weight loss at any time just by eating foods that you will learn ca
 
 ## Rest, A.K.A "Horizontal Time, HT"™
 
-The fact that most clients realize that **REST** a.k.a. *Horizontal Time* will allow us to guide you in mapping out your *Cleaning Cycles*™ and can accelerate weight-loss incinerating body fat whether just lying down in the HT position, sleeping or not. As clients say, “This Is A Magical Food Moment!”
+Most clients realize that **REST** a.k.a. *Horizontal Time* will allow us to guide you in mapping out your *Cleaning Cycles*™ and can accelerate weight-loss incinerating body fat whether just lying down in the HT position, sleeping or not. As clients say, “This Is A Magical Food Moment!”
 
-Many professional athletes would use exercise extensively, approximating a 3,500 cal-burn two times daily and eating only one meal or sometimes two meals per day, with some sort of starvation paired with this extreme cardiovascular routines or obsessive cardio in an attempt to manipulate weight to try to meet their contract weight or weight requirements for positions that they play. That did not work for them. Overworked executives and parents, due to healthcare plan requirements or re-exams, fall into the same ill habits. All unhealthy and addictive practices.
+Many professional athletes would use exercise extensively, approximating a 3,500 cal-burn two times daily and eating only one or sometimes two meals per day, with some sort of starvation paired with this extreme cardiovascular routines or obsessive cardio in an attempt to manipulate weight to try to meet their contract weight or weight requirements for positions that they play. That did not work for them. Overworked executives and parents, due to healthcare plan requirements or re-exams, fall into the same ill habits. All unhealthy and addictive practices.
 
 Only when they began this program and ate the correct foods for their systems, feeding their systems the correct foods until satisfied by allowing themselves unlimited portions, were they able to reach their goals and be at the low body fat percentages that they thought were impossible for them to achieve. Realizing they lose more weight when they rest and eat the correct foods with the right amount of horizontal time at the right time takes the stress out of exercise and the guilt out of relaxation. At the same time being able to reach their goals and enjoy food! 
 
 This is self-empowering and a Win/Win.
 
-You'll create a new physical and emotional relationship with the correct foods by listening and feeling what’s right and when you're satisfied and have an interactive experience with your system throughout your Dietary Progression's New Rules to help you understand it.
+You'll create a new physical and emotional relationship with the correct foods by listening and feeling what’s right and when you're satisfied, and have an interactive experience with your system throughout your Dietary Progression's New Rules to help you understand it.
 
 When on the correct foods at the right time with the right amount of Horizontal Time, regardless if you're awake or sleeping, your body is given the optimal opportunity to tap into innate intelligence to recover and regenerate from being vertical all day on earth's gravitational pull. 
 
-This intelligence, which we call your *Cleaning Cycles*™ is an opportunity already within us. When on the correct foods and eating them at the right time with the right amount of horizontal time, you will witness your chemical *click-in* while calming down in the Horizontal Time  position. This is to be discussed and coached upon in counsel.
+This intelligence, which we call your *Cleaning Cycles*™, is an opportunity already within us. When on the correct foods and eating them at the right time with the right amount of horizontal time, you will witness your chemical *click-in* while calming down in the Horizontal Time position. This is to be discussed and coached in counsel.
 
-Once your cleaning cycles have begun, these specific organs (your hepatic system) start their nightly performance and they look to do this every night as part of our innate, built-in natural detoxification and cleansing system. You're finally given the opportunity to perform at 100% on a cellular level by understanding how to tap into your own fountain of youth. 
+Once your cleaning cycles has begun, these specific organs (your hepatic system) start their nightly performance and they look to do this every night as part of our innate, built-in natural detoxification and cleansing system. You're finally given the opportunity to perform at 100% on a cellular level by understanding how to tap into your own fountain of youth. 
 
 Magical food moments begin to happen.
 
-You're introduced to multiple concepts that, clients agree, are eye opening experiences and windows of opportunity. You'll learn how to tap into your body's own sleep technology by *Mapping Out Your Cleaning Cycles*™ and learning about *The PM Scale Reading*™
+You're introduced to multiple concepts that, clients agree, are eye-opening experiences and windows of opportunity. You'll learn how to tap into your body's own sleep technology by *Mapping Out Your Cleaning Cycles*™ and learning about *The PM Scale Reading*™
 
 ##Hormones
 
-Both females and males want to satisfy cravings without over-eating and remain incredibly satisfied by what foods are working and proven to be compatible with their systems. 
+Both females and males want to satisfy cravings without over-eating and remain incredibly satisfied by foods that are working and proven to be compatible with their systems. 
 
-This is exactly what our clients experience when on the correct foods that Prostaglandin pathways can now use the correct fats for that individual system. This is the catalyst to accelerate weight loss and defy the look of aging, beautifying your skin as it starts to retain more nutrients due to those Prostaglandin pathways, and gain strength and new muscle mass by manufacturing male or female hormones. Less inflammation equals less pain and some clients report faster mental processing with improved attention span.
+This is exactly what our clients experience when on the correct foods because Prostaglandin pathways can now use the correct fats for that individual system. This is the catalyst to accelerate weight loss, defy the look of aging, and beautify your skin as it starts to retain more nutrients, due to those Prostaglandin pathways, and gain strength and new muscle mass by manufacturing male or female hormones. Less inflammation equals less pain and some clients report faster mental processing with an improved attention span.
 
 Men and Women in the United States, and now abroad, actually grow up from a young stage in life being exposed to synthetic hormones in many variations, from conventional and GMO foods to prescribed skin and respiratory medications. 
 
-Adolescence is surrounded by synthetic hormones, such as birth control, that alters hormonal communication internally with more short-term and long-term side effects being experienced, more than ever before.
+Adolescence is surrounded by synthetic hormones, such as birth control, that alters hormonal communication internally with more short-term and long-term side effects being experienced more than ever before.
 
 Respiratory and dermatological steroids also have become more common in childhood, adolescence, and adulthood.  Seasonally becoming winded with respiratory fatigue, wheezy breathing, excessive mucous, skin rashes with severe redness and itching, forms of rosacea, eczema, and psoriatic arthritic conditions, all correlate to a significant amount of the population now living on many different variations of steroids and synthetic hormones. 
 
@@ -85,9 +85,9 @@ Nutrients in specific fruits, vegetables, grains, and many other food groups, al
 
 ##Female Systems,
 
-There will also be more female hormones. Premenstrual syndrome becomes only a memory for women and perimenopause can be smooth without symptoms. Menopause becomes as natural as it should be with less or no hormones necessary, especially because bone density can increase as a result of eating the correct foods for the particular system. 
+There will also be more female hormones. Premenstrual syndrome becomes only a memory for women and perimenopause can be smooth without symptoms. Menopause becomes as natural as it should be with less or no hormones necessary, especially because bone density can increase as a result of eating the correct foods for that particular system. 
 
-After a period of time, women that begin their program with hormone replacement therapy medication start to be intrigued by their Dietary Progressions success and feel their systems change for the better. These women start to entertain the idea of wanting to experiment rotating, or weaning themselves to less doses or not taking this medication. When this type of situation presents itself, we always suggest that they consult with their other physicians which may find a specific niche for their own system while on their correct foods and rotate their medication over a longer period of time, or result in not taking the medication. Many clients reduce their doses of prescribed medications, with coordinated guidance, and do well without it.   
+After a period of time, women that begin their program with hormone replacement therapy medication become intrigued by their Dietary Progressions success and feel their systems change for the better. These women start to entertain the idea of wanting to experiment rotating, or weaning themselves to less doses or not taking this medication. When this type of situation presents itself, we always suggest that they consult with their other physicians, who may find a specific niche for their own system while on their correct foods and rotate their medication over a longer period of time, or result in not taking the medication. Many clients reduce their doses of prescribed medications, with coordinated guidance, and do well without it.   
 
 Different forms of birth control pills, or other medications that have hormonal side effects, are taken for many years without considering any effects on a menstrual cycle, the system that's endured this type of treatment (having the ability to reproduce a healthy baby on their own without the need for induced hormones to do so), or post-pregnancy health. Hormones needed for pregnancy are becoming just as much a trend as it is for menopausal women to end up addicted or dependent on hormonal therapy for the remainder of their lives. The severe silence that surrounds the side-effects is different for each system, not knowing the way their bodies feel without the hormones/medications because the foods being consumed at that time with hormones could not be used efficiently. Then when the correct foods can be eaten with a focus of increased cellular energy with respect to organ pathways, systems have the opportunity to repair and correct naturally. 
 
