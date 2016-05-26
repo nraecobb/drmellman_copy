@@ -3,11 +3,11 @@
 FAQ: 1
     
 Amazing Convenience *
-Concierge Nutritional Healthcare is who we are and all that’s needed for "Your Dietary Success" is a phone and email, no need to meet in person, You Can Remain on the Go!  No waiting around for a doctor or an assistant. Stick your daily schedule; reservations are made at your optimal times for private counsel with Dr. Leon Mellman, whether it be for a format review (30 minute call) or an educational call (60-minutes).  Another strategy enjoyed by all is a voice-memo (sent by Dr. Leon), a savvy technology we use to communicate with clients, that's at your convenience to listen in on specific food strategies right from Dr. Leon's interpretation of your data, then report back via text or email.  Constant contact through email, text, cloud communications, and voice - memo technology are all at our fingertips, regardless of time zone and global position.
+Concierge Nutritional Healthcare is who we are and all that’s needed for "Your Dietary Success" is a phone and email, no need to meet in person, You Can Remain on the Go! No waiting around for a doctor or an assistant. Stick to your daily schedule; reservations are made at your optimal times for private counsel with Dr. Leon Mellman, whether it be for a format review (30 minute call) or an educational call (60 minutes). Another strategy enjoyed by all is a voice-memo (sent by Dr. Leon), a savvy technology we use to communicate with clients, that's at your convenience to listen in on specific food strategies right from Dr. Leon's interpretation of your data, then report back via text or email. Constant contact through email, text, cloud communications, and voice - memo technology are all at our fingertips, regardless of time zone and global position.
 
 FAQ: 
 
-For children, please request information and pricing. Medical history is necessary to determine this. After submission, you will be contacted to schedule the medical interview for the children of interest 
+For children, please request information and pricing. Medical history is necessary to determine this. After submission, you will be contacted to schedule the medical interview for the children of interest.
 
 FAQ:
 Get global informative graphics similar to Zev's 
@@ -53,7 +53,7 @@ Initial Deposit - Forms of Payment:
 
 *
 The 995.00 Initial Deposit is necessary to have a specimen kit shipped to your location. ( Contact Page - Quick Start )
-Your specimen kit will then ship,( FedEx ).
+Your specimen kit will then ship via FedEx.
 
 *Initials Deposits can be processed on the "contact page" by, authorize.net.
 The electronic receipt is emailed.
@@ -61,7 +61,7 @@ The electronic receipt is emailed.
 *Initial Deposits or the Program Amount in "FULL" can be immediately applied to keep your-time-line progressing, when voice to voice with Dr. Leon Mellman at the conclusion of your medical interview. Via credit card processing by Intuit Merchant Systems.  The electronic receipt is emailed.
 If selecting the electronic wire payment option. (See Below)
 
-Your specimen kit will then ship,( FedEx ).
+Your specimen kit will then ship via FedEx.
 
 Once your specimen (blood sample) has been shipped back and received for preliminary laboratory processing, payments made in "FULL" will be expedited for final diagnostic staging in dietary formulation, keeping your time line progressing.
 
@@ -86,9 +86,9 @@ Business and group referrals offer possible tax incentive strategies. Any questi
 
 FAQ: 
 
-35 Years & Counting, not 2 programs ever the same.
+35 Years and counting, not 2 programs ever the same.
 
-I pioneered this application and founded this program for my first son, Dr. Leon Mellman, because I did not accept the diagnoses at that time. I was confident that what I had witnessed his system endure day to day, at the young age of 4, was so consistent with foods and brands at times and then so inconsistent with foods and brands at other times. That, combined with a few other family events, was the inspiration I needed to create our nutritional science in dietary software and the application of a dietary progression.   
+I pioneered this application and founded this program for my first son, Dr. Leon Mellman, because I did not accept the diagnoses at that time. I was confident that what I had witnessed his system endure day to day, at the young age of 3, was so consistent with foods and brands at times and then so inconsistent with foods and brands at other times. That, combined with a few other family events, was the inspiration I needed to create our nutritional science in dietary software and the application of a dietary progression.   
 
 The diagnostic formulation is the starting point, your foundation, to building your very own dietary portfolio.
 
