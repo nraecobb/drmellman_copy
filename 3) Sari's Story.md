@@ -18,6 +18,6 @@ Sari was given freedom to apply the results and which foods were not uncovered b
 
 She began to see patterns and noticed consistent weight loss when making specific adjustments to the patterns she uncovered. When Sari wanted to share her findings, she was told that it was not important because they had to validate the instrumentation to sell tests and that she should go home and be a mother. 
 
-What a slap in the face! They did not appreciate and value the reality she was showing them or that together they could change peoples lives for the better. Sari Mellman felt that she was being shown a truth as equally important. People,Leon included, were becoming well; their systems healing. As time went on, it did not matter that the lab, scientists, and doctors were not listening. 
+What a slap in the face! They did not appreciate and value the reality she was showing them or that together they could change peoples lives for the better. Sari Mellman felt that she was being shown a truth as equally important. People, Leon included, were becoming well; their systems healing. As time went on, it did not matter that the lab, scientists, and doctors were not listening. 
 
 Now, 35 years later, people are still listening to Sari’s son, Dr. Leon Mellman.
