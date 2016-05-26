@@ -34,7 +34,7 @@ Connecting our *Dietary Diagnostic Software* and the application Dietary Progres
 
 Your system can have the opportunity to correct and repair itself. As every system is different, some achieve correction in a short period of time but for others it's over a longer period of time. The parameters of establishing what defines correction, or what determines your own correction, will be initially discussed during your medical interview and again during your orientation call, **Titled, How To Play The Game**™.  
 
-This when your **Dietary Playbook**™ is presented to you by Dr. Leon Mellman, for your initial understanding of the diagnostic materials, as it directly relates to your immune system.  Your **Dietary Playbook**™ arrives with a very accurate scale that offers specific features Dr. Leon will provide during your 4 months of counsel, implementing and interpreting the new rules to your immune system during your format reviews and educational calls, when submitting your daily data (via email), implementing your **Dietary Progression**™.  
+This when your **Dietary Playbook**™ is presented to you by Dr. Leon Mellman for your initial understanding of the diagnostic materials, as it directly relates to your immune system.  Your **Dietary Playbook**™ arrives with a very accurate scale that offers specific features Dr. Leon will provide during your 4 months of counsel, implementing and interpreting the new rules to your immune system during your format reviews and educational calls, when submitting your daily data (via email), implementing your **Dietary Progression**™.  
 
 From your day-one foods through your diagnostically formulated challenge lists, magical food moments begin to happen. You're introduced to multiple concepts that, clients agree, are eye opening experiences - windows of opportunity in learning how to tap into your your body's own sleep technology, such as *Mapping Out Your Cleaning Cycles*™ and what's been dubbed, your *Horizontal Time - the Horizontal Position*™. a.k.a. REST and learning about *The PM Scale Reading*™, your *prostaglandins hormone* technology.
 
@@ -45,30 +45,30 @@ Nutrition's best kept secret *is in your blood*!
 
 #Timing is Everything
 
-When foods are consumed, they become chemical structures. If they become the wrong chemical structure for the food group they belong to certain white blood cell membranes become irritated and inflamed, then become toxic dead weight and die.
+When foods are consumed, they become chemical structures. If they become the wrong chemical structure for the food group they belong to, certain white blood cell membranes become irritated and inflamed, then become toxic dead weight and die.
 
 The cells interpret this as an attack within your system and contributes to your weight gain and toxicity by suppressing your immune system, causing body parts to swell and leave you feeling as if you are carrying around a dumbbell of toxic dead weight.
 
-Different white blood cells help support the function of many specific systems in your body. Through the application we developed *Dietary Progressions*, we can tell which system appears to be trending toward dysfunction and how your body will try to correct and repair with the foods that are in your particular program. Timing is everything with the right foods being consumed at the right time with the right amount of Horizontal Time, *HT*™.
+Different white blood cells help support the function of many specific systems in your body. Through the application we developed, *Dietary Progressions*, we can tell which system appears to be trending toward dysfunction and how your body will try to correct and repair with the foods that are in your particular program. Timing is everything with the right foods being consumed at the right time with the right amount of Horizontal Time, *HT*™.
 
 When it’s the correct food for your system, this equals (=) the right energy for your system.
 
 The wrong foods equal (=) the wrong energy. 
 
-Our nervous systems and digestive systems neurology are truly marinated within our anatomy as an infused communication highway immediately interacting with the food we eat. Internal phone calls -neurological communication with enzymatic conversation – start to activate with just the touch of food to your tongue, in preparation of coding the compatibility of your challenge food, working correctly or not working correctly. According to the "New Rules", protocols and application of your "Dietary Playbook's Dietary Progression". This is understood when in counsel specific to your particular system. 
+Our nervous and digestive systems neurology are truly marinated within our anatomy as an infused communication highway immediately interacting with the food we eat. Internal phone calls -neurological communication with enzymatic conversation– start to activate with just the touch of food to your tongue, in preparation of coding the compatibility of your challenge food, working correctly or not working correctly, according to the "New Rules", protocols, and application of your "Dietary Playbook's Dietary Progression". This is explained during counsel specific to your particular system. 
 
 **Serious Food For Thought**
 
 Detecting which Prostaglandin pathways are exhausted and in need of rest and repair is another one of our pioneering efforts. Understanding which Prostaglandin foods, if possible, to start your Dietary Progressions program with and which Prostaglandin food not to start with can be a basic fundamental reason for your dietary success. 
 
-Timing this prostaglandin fundamental leads your bodies ability to manufacture more anti-inflammatory hormones (male or female) thus providing enhanced protection, efficiency, and performance for each end organ system involved.
+Timing this prostaglandin fundamental leads your body's ability to manufacture more anti-inflammatory hormones (male or female), thus providing enhanced protection, efficiency, and performance for each end organ system involved.
 
 This, accomplished at any age, is a WIN/WIN ! 
 
 
 # IMMUNE RELATED
 
-Many health problems are weight related and immune related. Any decrease in inflammatory processes will limit those Unknowns that contribute to abnormal organ and cell function. As a special note, we would like mention that one of the program's applications is to improve immune response and cellular communication. In addition to weight management, an additional purpose of the  dietary program's protocol is to educate, motivate, and inspire participants on finding foods that will fulfill the essential fatty acid prostaglandin pathways with the correct fats for their systems.  This will enable their bodies to manufacture more anti-inflammatory hormones thus providing enhanced protection for each end organ system involved.  Many professional athletes and executives experience less injury, faster recovery if injured and more rapid recovery from exercise.
+Many health problems are weight related and immune related. Any decrease in inflammatory processes will limit those Unknowns that contribute to abnormal organ and cell function. As a special note, we would like mention that one of the program's applications is to improve immune response and cellular communication. In addition to weight management, an additional purpose of the  dietary program's protocol is to educate, motivate, and inspire participants on finding foods that will fulfill the essential fatty acid prostaglandin pathways with the correct fats for their systems.  This will enable their bodies to manufacture more anti-inflammatory hormones thus providing enhanced protection for each end organ system involved.  Many professional athletes and executives experience less injury, faster recovery from injury, and a more rapid recovery from exercise.
 
 When it’s the correct food for your system, this equals (=) the right energy for your system.
 
@@ -107,7 +107,7 @@ Remember if you vacation on weekends or weeks at a time, it is very easy to come
 
 # (An Interactive Experience)
 
-It’s at this time when on your *unique* individualized Dietary Progression that your system is seeking compatibility through immune system parameters, rules, and protocols we share with you in counsel. It's the integration of your Dietary Progression that connects the diagnostic foundation formulated for you. As you receive your "Dietary Playbook" and start with the initial orientation call, “Titled – How To Play The Game”, to your individual format reviews using an interactive downloadable app spreadsheet day to day, and educational calls specific to your diagnostic section in your “Dietary Playbook" mapping out your dietary progression to remain food-focused and stay on program. Dr. Leon will be your guide.
+It’s at this time on your *unique* individualized Dietary Progression that your system is seeking compatibility through immune system parameters, rules, and protocols we share with you in counsel. It's the integration of your Dietary Progression that connects the diagnostic foundation formulated for you. As you receive your "Dietary Playbook" and start with the initial orientation call, “Titled – How To Play The Game”, you'll add to your individual format reviews using an interactive downloadable app spreadsheet day to day, and receive educational calls specific to your diagnostic section in your “Dietary Playbook" to map out your dietary progression, encouraging you to remain food-focused and stay on program. Dr. Leon will be your guide.
  
 Start to have an interactive experience on the right foods with your body. Most importantly understand it; your body's feedback, your immunogenic response! From food to food in which your immune system interacts and communicates with you, revealing your unknowns, delayed reaction patterns (if any), *Mapping Out Your Cleaning Cycles*, inflammation related to our *Scale Reactivity System*™ and building your specific list of foods that *prove compatible* to white blood cells.
 
@@ -117,10 +117,10 @@ Like building a financial portfolio specific to your profession and lifestyle, t
 
 If you only use the diagnostic findings without the application then...
 
-If you do not go through the Dietary Progression, real improvement will not occur due to the fact that you will always have other interference from foods that were not identified as problematic, whether determined through the diagnostic formulations or because of their "unknown mechanism", but are still being eaten by the client.
+If you do not go through the Dietary Progression, real improvement will not occur due to the fact that you will always have other interference from foods that were not identified as problematic, whether determined through the diagnostic formulations or because of their "unknown mechanism", but are still being consumed by the client.
  
-For over 35 years, our research-based and developed dietary software by Sari Mellman, PhD had revealed more Unknowns and yielded an in-depth understanding of one's immune system not typically seen within many types of laboratory panel ordering, food sensitivity testing, or different forms of allergy testing.
+For over 35 years, our research-based and developed dietary software by Sari Mellman, PhD has revealed more Unknowns and yielded an in-depth understanding of one's immune system not typically seen within many types of laboratory panel ordering, food sensitivity testing, or different forms of allergy testing.
  
-This is where the starting point of your medical interview, your blood sample, the initial laboratory processing, and then the final staging of your specimen for Dr. Leon Mellman to diagnostically formulate your Dietary Progression.
+This is the starting point of your medical interview, your blood sample, the initial laboratory processing, and then the final staging of your specimen for Dr. Leon Mellman to diagnostically formulate your Dietary Progression.
 
 This is the basic, fundamental underlying reason of Why We Are Unique!, we offer an integrated nutritional program for applied immunology you can learn and you can apply as long as you like...
