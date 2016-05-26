@@ -13,19 +13,20 @@ _______________________________________________________________
 
 Request a reservation for your medical interview by submitting your contact information.
 
-It is necessary to download the (PDF) Non-Disclosure Intellectual Property Right Acknowledgement of Engagement Agreement, your NDA-IP-AOE.  This is a privacy healthcare document to be signed and submitted back to us with a copy of your driver's license or state, military, or university issued I.D., as required by concierge healthcare laws.  
+It is necessary to download the (PDF) Non-Disclosure Intellectual Property Right Acknowledgement of Engagement Agreement, your NDA-IP-AOE. This is a privacy healthcare document to be signed and submitted back to us with a copy of your driver's license or state, military, or university issued I.D., as required by concierge healthcare laws.  
+
 This document discloses details and states that everything discussed during your medical interview is private and confidential to you and Dr. Leon Mellman.
 
-Upon receiving your NDA-IP-AOE with ID attached, your official welcome letter will be emailed to you from our concierge front desk offering dates and times for your medical interview reservation.
+Upon receiving your NDA-IP-AOE with I.D. attached, your official welcome letter will be emailed to you from our concierge front desk offering dates and times for your medical interview reservation.
 
 ### Your Medical Interview
-Appreciate what makes your system unique and different. criteria for counsel.
+Appreciate what makes your system unique and different.
 
 During your medical interview, you and Dr. Leon Mellman will "Define Your MAIN FOCUS".  
 
 Dr. Leon will listen carefully to you and speak with you regarding what your healthcare journey has endured. He will learn and strategize your professional and personal environments, lifestyle management, medical history, sleep habits, any food beliefs developed and any equipment you may use at home to recover from flight/travel, and in-home wellness strategies practiced that may influence your soon-to-be magical food moments, all in the PURSUIT of DIETARY EXCELLENCE. 
  
-Please confirm your address and the form in which you chose to apply your initial deposit or complete payment. If you have already completed this, or are in the process at the QuickStart Option on the contact and billing information page, thank you.  The initial deposit will expedite the specimen kit shipping to the address you indicated on the contact information, if different from the address on your I.D.  Only complete, upfront payments expedite the processing of your program's diagnostic formulation, which will reflect on the invoice emailed following your interview.
+Please confirm your address and the form in which you chose to apply your initial deposit or complete payment. If you have already completed this, or are in the process at the QuickStart Option on the contact and billing information page, thank you. The initial deposit will expedite the specimen kit shipping to the address you indicated on the contact information, if different from the address on your I.D. Only complete, upfront payments expedite the processing of your program's diagnostic formulation, which will reflect on the invoice emailed following your interview.
 
 Dr. Leon will answer any questions you may have during your medical interview. 
 
@@ -47,7 +48,8 @@ Logistics from FedEx systems will be sent to your e-mail.
 
 ##### Your Sample Blood-Draw
 
-Included with your specimen kit are very straight forward instructions with a pre-paid FedEx overnight air-ticket. Your blood sample must be sent through Fedex to Dr. Leon's lab the same day your blood is drawn.  We suggest you seek out a private physician or a private out parcel service, such as an "Any Lab Test", or contact an outside physician's office, such as a walk-in urgent care center that offers simple fees for blood draws.  
+Included with your specimen kit are very straight forward instructions with a pre-paid FedEx overnight air-ticket. Your blood sample must be sent through Fedex to Dr. Leon's lab the same day your blood is drawn. We suggest you seek out a private physician or a private out parcel service, such as an "Any Lab Test", or contact an outside physician's office, such as a walk-in urgent care center that offers simple fees for blood draws.  
+
 Dr. Leon will instruct you on this process.
 
 ### Specimens Received
@@ -73,7 +75,7 @@ If a waiting list exists, you will be informed.
 
 - Initial Deposit (Quick-Start Option) or Complete Payment 
 
-- Specimen Kit, Your Email Provided will receive logistics when shipped via ( FedEx) Dropped at a Fedex station the same day your blood sample was drawn for overnighting back to Dr. Leon's lab via the pre-paid Fedex air-ticket within your specimen kit. 
+- Specimen Kit; you will receive logistics via email when dropped at a Fedex station the same day your blood sample was drawn for overnighting back to Dr. Leon's lab via the pre-paid Fedex air-ticket within your specimen kit. 
 
 - Dr. Leon Mellman will answer any questions you may have during your interview. 
 
