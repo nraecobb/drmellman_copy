@@ -13,9 +13,9 @@ An Integrated Nutritional Program for Applied Immunology.
 
 ## Programs materials: 
 
-Throughout the next four months of counsel, you will experience a custom diagnostic section related to your immune system, strategic educational diagrams to implement your Dietary Progression, and receive a very accurate scale that offers specific features. During those months, Dr. Leon will provide counsel implementing and interpreting the new rules for your immune system.  “The integration progression process” of your immune systems evolvement is a critical key component to our nutritional science, the dietary program, and how, 35 years later, we still have not had one program the same. Demonstrating the relationship to your medical history, the environments that you work in, live in, and travel to and from. Immune systems can improve. Your immune system can strengthen, year after year. This is another ultimate focus of your dietary progression.
+Throughout the next four months of counsel, you will experience a custom diagnostic section related to your immune system, strategic educational diagrams to implement your Dietary Progression, and receive a very accurate scale that offers specific features. During these months, Dr. Leon will provide counsel implementing and interpreting the new rules for your immune system. “The integration progression process” of your immune system's evolvement is a critical key component to our nutritional science, the dietary program, and how, 35 years later, we still have not had one identical program, demonstrating the relationship specific to your medical history, the environments that you work in, live in, and travel to and from. Immune systems can improve. Your immune system can strengthen, year after year. This is another ultimate focus of your dietary progression.
 
-You will experience a complete integrated healthcare management system with in-depth counsel and an ongoing constant contact experience with Dr. Leon Mellman, regarding what each participant's immune system is accomplishing, within the protocol of the program. Dietary counsel on updates and trends providing for higher level decision making regarding agricultural changes to the marketplace.
+You will experience a complete integrated healthcare management system with in-depth counsel and an ongoing constant contact experience with Dr. Leon Mellman, regarding what each participant's immune system is accomplishing within the protocol of the program, including dietary counsel on updates and trends providing for higher level decision making regarding agricultural changes to the marketplace.
 
 	$7,995.00 Per Individual 
 
@@ -28,7 +28,7 @@ This includes the initial deposit of $995.00 for the specimen kit to be shipped 
 
 **Initial Deposit, Forms of Payment:**
 
-The **$995.00** Initial Deposit is necessary to have a specimen kit shipped to your location. processed on the "contact page" by, authorize.net.  The electronic receipt is emailed.
+The **$995.00** Initial Deposit is necessary to have a specimen kit shipped to your location. processed on the "contact page" by, authorize.net. The electronic receipt is emailed.
 
 <!--( Contact Page - Quick Start, shortcut )-->
 
@@ -36,7 +36,7 @@ Your specimen kit will then ship via FedEx.
 
 Initial deposits or the complete amount can be processed via credit card when voice to voice with Dr. Leon at the conclusion of your medical interview.  
 
-<!--Or the complete program amount can be applied on the Contact Page - Quick Start, processed by authorize.net systems. The electronic receipt is emailed. Your specimen kit will then ship,( FedEx ).-->
+<!--Or the complete program amount can be applied on the Contact Page - Quick Start, processed by authorize.net systems. The electronic receipt is emailed. Your specimen kit will then ship via FedEx.-->
 
 Once your specimen (blood sample) has been shipped back and received for preliminary laboratory processing, payments made in full will be expedited at this time for final diagnostic staging in dietary formulation to keep your timeline progressing.
 
